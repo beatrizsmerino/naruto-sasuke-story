@@ -1,5 +1,9 @@
 # Naruto: Sasuke's Story: Sunrise (Naruto Novels)
 
+## Description
+
+This repository has been created to learn languages, translating the book `Sasuke's Story: Sunrise (Naruto Novels)` from English to Spanish.
+
 ## Summary
 
 ![Cover of Naruto: Sasuke's Story: Sunrise (Naruto Novels)](./README/images/sasuke-story-front-cover.jpeg)
