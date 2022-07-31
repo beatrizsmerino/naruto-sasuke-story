@@ -4,6 +4,11 @@
 
 This repository has been created to learn languages, translating the book `Sasuke's Story: Sunrise (Naruto Novels)` from English to Spanish.
 
+### Language versions
+
+- [English](en.txt)
+- [Spanish](es.txt)
+
 ### Tool references
 
 - [Wordtune](https://www.wordtune.com/#rewrite-demo)  
