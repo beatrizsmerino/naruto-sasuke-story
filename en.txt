@@ -71,7 +71,7 @@ The ninja of Kumogakure grumbled, waiting in the drizzling rain to greet the nin
 Their straightforward, short-tempered Raikage. If they kept him waiting too long, he would erupt in anger; he might very well bring the lightning of his name down on them.
 "Maybe the weather's not working with them. There's nowhere out on the ocean to get out of the rain, after all".
 "But they could at least send a messenger hawk from the ship, right? It'd make it easier for us to report to up high too, if they'd send a little note saying they're late".
-"That's true, but...".
+"That's true, but..."
 The wind brushed against the cheeks of the increasingly wetter Kumogakure ninja. After considering again the possibility that their arrival could be even further delayed, they decided to send a messenger to Kumogakure.
 "Hey, wait. Is that it there?".
 A ship has finally appeared on the horizon.
@@ -156,10 +156,10 @@ You listen, you spineless brats! You're gonna be like that, then I'll do it! Dar
 Sasuke didn't have a chance to even ask what was going on; in any case, he had no choice. "Hah!" He pushed out a hard breath, and took his sword in hand.
 "Diiiiiiiieeee!" The old man pushed the bamboo lance forward.
 Sasuke easily cut the end of it off. With incredible speed, he then sliced the lance into thin rounds up to the old man's hand, before bringing the tip of his sword up against the old ma's windpipe. Sasuke pressed the blade against his throat as if to make him keenly aware of the cold sensation of the sword.
-"Ee, eeep." The bamboo, chopped down to a single joint, fell from the old man's hand. Droplets of sweat popped up on his dry skin and fell to the ground.
+"Ee, eeep". The bamboo, chopped down to a single joint, fell from the old man's hand. Droplets of sweat popped up on his dry skin and fell to the ground.
 "Ah, ah w-wait, brother! Boss! Handsome! Manly! Don't kill the old man!" Panicked, Chino came at Sasuke as if to calm him.
 Not responding to this, Sasuke said to the old man, "You've got the worng idea".
-"Hah, hah...".
+"Hah, hah..."
 "I don't know this Dark Thunder".
 "Eee, eee..." Sasuke's words didn't seem to make it into the old man's ears; he kept breathing sallowly, trembling with fear.
 They wouldn't get anywhere like this.
@@ -169,7 +169,7 @@ Sasuke moved the blade of his sword the tinest bit away from the old man's throa
 Meanwhile, Chino and Nowaki looked at each other.
 "Iou! He says it's a mistake!" Chino shouted.
 But the old man Iou's moaned, "Shut up! This isn't the time for that! My heart, ah! My heart huuuurts!" Released from the terror of death, Iou's body responded with intense heart palpitations. He pressed a hand to his chets, and desperately sucked in air.
-"Sorry. That was a terrible mistake for us to have made."
+"Sorry. That was a terrible mistake for us to have made".
 Unlike Iou, Nowaki seemed sincerly apologetic.
 "Although I feel like we would have been the ones to be killed if the fighting continuaded, I am sorry", Chino added, clapping both hands together in a gesture of contrition. "C'mon, Iou!".
 You say sorry, too!
@@ -237,17 +237,17 @@ Looking up at the moon hidden among the clouds, Karyu stretched out his hands. "
 
 3.
 The massive A-un gates connecting the village with the outside world were closed now, as if to escape the darkness of night; the enormous rock wall with the faces of the six generations of Hokage carved into it was quietly illuminated by the light of the moon spilling through the clouds.
-Ancient even among the ninja villages, the Land of Fire`s Konohagakure. This village, which had once taken catastrophic damage from Akatsuki's Pain, now shone even more brightly than it had in the past, and the population, which dropped during the Fourth Great Ninja War, was gradually recovering.
+Ancient even among the ninja villages, the Land of Fire's Konohagakure. This village, which had once taken catastrophic damage from Akatsuki's Pain, now shone even more brightly than it had in the past, and the population, which dropped during the Fourth Great Ninja War, was gradually recovering.
 Everything appeared to be going well, but every era inevitably had its trials.
 "Hmm. This is actually a tough one"
 The Hokage's office.
 Looking over the letters that had arrived from Kirigakure and Kumogakure, the sixth Hokage, Kakashi, sighed. The missing shinobi were master hands. And with the ninja of Kirigakure, a hundred shinobi had disappeared all at once, together with a ship.
 According to Kumogakure, someone who had seen the Kirigakure ship in the ocean near the port in the Land of Lightning. In which case, it was possible that the ship had docked at one point at the port of the Land of Lightning. So maybe the Kumogakure ninja had gotten on the ship and gone somewhere with them?
-But it was not going to be helpful if they had actually fled across the ocean. They wouldn`t leave any footprints or scent; in the wide ocean, even the ninja dogs Kakashi could summon, all them excellent trackers, would have a hard time finding the missing ninja. Kirigakure and Kumogakure were no doubt both at a loss for what to do.
+But it was not going to be helpful if they had actually fled across the ocean. They wouldn't leave any footprints or scent; in the wide ocean, even the ninja dogs Kakashi could summon, all them excellent trackers, would have a hard time finding the missing ninja. Kirigakure and Kumogakure were no doubt both at a loss for what to do.
 If this were the past, the details of this incident would have stopped at the borders, but the letters seeking information had been sent to Konohagakure, Iwagakure, and Sunagakure —ninja villajes of the five great lands— and now the information seemed to be spreading even further. Although this was another village's problem, it was not a stranger's problem.
 When the information arrived, Kakashi conveyed it inmmediately to the ninja of Konoha. And to Sasuke, who was traveling the world. Kakashi suspected that genjutsu was involved.
 Although neither Kumogakure nor Kirigakure had any specific theories, they likely thought the same thing. And it had to be an unknown genjutsu. That was the only conclusion he could come to when he thought about the fact that so many ninja had been unable to grapple with it. Sasuke probably thought the same thing after reading Kakashi's letter.
-Sasuke had left on his journey for information and atonement, saying something bothered him. Unlike the ninja in the village, he had some room to maneuver. And more than anything else, he had the Sharingan and the Rinnegan. Things other ninja couldn`t know might be seen with his eyes.
+Sasuke had left on his journey for information and atonement, saying something bothered him. Unlike the ninja in the village, he had some room to maneuver. And more than anything else, he had the Sharingan and the Rinnegan. Things other ninja couldn't know might be seen with his eyes.
 "Sixth".
 He heard a knock on the door of his office. Identifying the voice as that of Shizune, former Hokage Tsunade's student, he called out, "Yes, come in". She was kind enough to be his assistant as well.
 The door was slightly ajar; Shizune poked her face through with a concerned expresion. "Excuse me —Sai says he has a report", she informed him.
@@ -402,7 +402,7 @@ Just as Sai pulled our his brush, they heard someone suddenly call out Naruto's 
 "Earlier, intruders were detected by the barrier. They number thirty".
 "What?!" they all cried out in surprise. Thirty —three times the attack just now.
 "Does that mean new intruders?" Sakura asked. "They were detected this time?"
-"Yes." Aoba nodded. "They're heading this way now".
+"Yes". Aoba nodded. "They're heading this way now".
 Naruto felt eyes on him from the woods on the other side of the destroyed wall. "There!"
 From the dark woods, first, a lone man. He was followed by one more, and then another.
 "That may be..." Sakura murmured, a bewildered look on her face.
@@ -412,6 +412,6 @@ They were wearing ninja uniforms. But they were a mix of Kirigakure and Kumogaku
 Shikamaru talked as though he had actually been there himself. "Although they were being controlled by someone, Tadaichi and the others were Konoha ninja. That's why they were able to slip through the barrier without being noticed. They were probably just a teaser, at best".
 The army corps of mind-controlled ninja was slowly approaching. Dull eyes that gave no impression of will. This was the main force.
 "On top of that, there's a good chance that these guys here now are the missing ninja from Kiri and Kumo. Honestly, it's just one thing after another". Shikamaru scratched his head.
-"Shikamaru —the trigger that makes them explode is probably getting hurt. Their wounds emit a strange chakra and starts the transformation of their bodies". Just like Naruto had noticed     their wounds, Sakura had also apparently picked out the trigger for the explosions.
+"Shikamaru —the trigger that makes them explode is probably getting hurt. Their wounds emit a strange chakra and starts the transformation of their bodies". Just like Naruto had noticed their wounds, Sakura had also apparently picked out the trigger for the explosions.
 "In which case, we can't be careless with them". A serious look rose up on Shikamaru's face as he stared at the approaching ninja.
 And this situation was not just happening in Konoha.
