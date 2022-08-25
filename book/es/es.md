@@ -1,6 +1,15 @@
 # La historia de Sasuke: Amanecer (Novelas de Naruto)
 
-![Cover of Naruto: Sasuke's Story: Sunrise (Naruto Novels)](./README/images/sasuke-story-front-cover.jpeg)  
+![Cover of Naruto: Sasuke's Story: Sunrise (Naruto Novels)](../../README/images/sasuke-story-front-cover.jpeg)  
+
+## 🔖 Tabla de contenidos
+
+- [x] [Prologo](./es_prologue.md)
+- [x] [Capitulo 1: Nubes oscuras que aparecen en un mundo de cambios](./es_chapter_1.md)
+- [ ] Capitulo 2
+- [ ] Capitulo 3
+- [ ] Capitulo 4
+- [ ] Epílogo
 
 ## 📖 Resumen
 
