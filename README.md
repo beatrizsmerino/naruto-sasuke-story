@@ -6,8 +6,8 @@ This repository has been created to learn languages, translating the book `Sasuk
 
 ### Language versions
 
-- [English](en.txt)
-- [Spanish](es.txt)
+- [English](./book/en/en.txt)
+- [Spanish](./book/es/es.txt)
 
 ### Tool references
 
