@@ -1,5 +1,5 @@
-Capitulo 1
-Nubes oscuras que aparecen en un mundo de cambios
+# Capitulo 1
+## Nubes oscuras que aparecen en un mundo de cambios
 
 1.
 "Dale también mis saludos al Lord Raikage".

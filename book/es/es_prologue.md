@@ -1,4 +1,4 @@
-Prólogo
+# Prólogo
 
 Estaba solo y famélico de amor, un niño espoleado por el odio.
 Tomé un camino diferente al de mi amigo, que conoció un dolor similar al mío. Elegí un camino de inmensa soledad.

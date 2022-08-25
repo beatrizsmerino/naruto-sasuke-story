@@ -1,4 +1,4 @@
-Prologue
+# Prologue
 
 I was alone and starved of love, a child spurred on by the hatred.
 I took a different path from my friend, who knew pain similar to my own. I chose a path of further loneliness.

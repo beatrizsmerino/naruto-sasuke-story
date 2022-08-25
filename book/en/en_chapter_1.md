@@ -1,5 +1,5 @@
-Chapter 1
-Dark clouds appearing in a world of change
+# Chapter 1
+## Dark clouds appearing in a world of change
 
 1.
 "Give my best regards to the Lord Raikage as well".
