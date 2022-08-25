@@ -6,9 +6,9 @@
 
 - [x] [Prologue](./en_prologue.md)
 - [x] [Chapter 1: Dark clouds appearing in a world of change](./en_chapter_1.md)
-- [ ] Chapter 2
-- [ ] Chapter 3
-- [ ] Chapter 4
+- [ ] Chapter 2: Shadow of the past revived by lightning
+- [ ] Chapter 3: Ostentatious welcome, roar of grief
+- [ ] Chapter 4: Where the red eyes gaze
 - [ ] Epilogue
 
 ## 📖 Summary

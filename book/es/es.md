@@ -6,9 +6,9 @@
 
 - [x] [Prologo](./es_prologue.md)
 - [x] [Capitulo 1: Nubes oscuras que aparecen en un mundo de cambios](./es_chapter_1.md)
-- [ ] Capitulo 2
-- [ ] Capitulo 3
-- [ ] Capitulo 4
+- [ ] Capitulo 2: La sombra del pasado revivida por un rayo
+- [ ] Capitulo 3: Ostentosa bienvenida, rugido de dolor
+- [ ] Capitulo 4: Donde los ojos rojos miran
 - [ ] Epílogo
 
 ## 📖 Resumen
