@@ -17,6 +17,10 @@ AI writing tool that rewrites, rephrases and reorders your writing. Strengthens 
 - [Deepl](https://www.deepl.com/es/translator)  
 Precise translations of texts and complete files in an instant, with the online tool or downloading the MAC app.
 
+- [Online OCR](https://www.onlineocr.net/)  
+Picture to text converter allows you to extract text from image or convert PDF to Doc, Excel or Text formats
+using Optical Character Recognition (OCR) software online.
+
 - [Get emoji](https://getemoji.com/)  
 ✂️ Copy and 📋 Paste Emoji 👍 
 
