@@ -11,6 +11,8 @@
 - [ ] Capitulo 4: Donde los ojos rojos miran
 - [ ] Epílogo
 
+> [Versiones de idiomas](../../README.md#language-versions)
+
 ## 📖 Resumen
 
 > La Gran Guerra Ninja ha terminado, pero para desentrañar el misterio que queda, Sasuke emprende un viaje que espera le permita expiar sus pecados. Durante su viaje, los ninja fieles al vengador Sasuke provocan una tragedia. Mientras tanto, el peligro se acerca a las aldeas de Konoha, Kiri y Kumo, donde los ojos rojos arden de odio. ¿Cuál es el futuro que contempla Sasuke?
