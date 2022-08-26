@@ -1,3 +1,7 @@
+> [Tabla de contenidos](./es.md)
+
+<br>
+
 # Prólogo
 
 Estaba solo y famélico de amor, un niño espoleado por el odio.
@@ -16,3 +20,7 @@ La venganza me ha sostenido. Al mismo tiempo, me ha carcomido. El odio corría p
 Entré en un nuevo camino. Un camino que lleva del pasado al futuro. Sin embargo, no es un camino parejo. Este mundo aún contiene todo tipo de dolor.
 Sharingan en mi ojo derecho, Rinnegan en el izquierdo.
 El futuro se refleja en estos ojos que una vez miraron a la oscuridad...
+
+<br>
+
+> [Tabla de contenidos](./es.md)

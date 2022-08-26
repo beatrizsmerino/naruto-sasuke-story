@@ -1,3 +1,7 @@
+> [Tabla de contenidos](./es.md)
+
+<br>
+
 # Capitulo 1
 ## Nubes oscuras que aparecen en un mundo de cambios
 
@@ -527,3 +531,7 @@ Sai rápidamente puso su pincel en movimiento.
 En medio de todo esto, sin prestar atención a la conmoción, el sol comenzó a elevarse al cielo del este. Bajo su luz, el sudor se derramó por las mejillas de Naruto.
 Naruto lo había captado en secreto. El odio sin fondo sembrado en su interior.
 </details>
+
+<br>
+
+> [Tabla de contenidos](./es.md)

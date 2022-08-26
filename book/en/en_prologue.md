@@ -1,3 +1,7 @@
+> [Table of contents](./en.md)
+
+<br>
+
 # Prologue
 
 I was alone and starved of love, a child spurred on by the hatred.
@@ -16,3 +20,7 @@ Revenge has supported me. At the same time, it had eaten away at me. Hatred race
 I stepped onto a new path. A path leading from the past to the future. It is not an even path, however. This world still contains all kinds of pain.
 Sharingan in my right eye, Rinnegan in my left.
 The future reflected in these eyes that once stared into darkness...
+
+<br>
+
+> [Table of contents](./en.md)

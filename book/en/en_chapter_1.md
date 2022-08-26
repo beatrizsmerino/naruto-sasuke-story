@@ -1,3 +1,7 @@
+> [Table of contents](./en.md)
+
+<br>
+
 # Chapter 1
 ## Dark clouds appearing in a world of change
 
@@ -527,3 +531,7 @@ Sai quickly set his brush moving.
 In the midst of all this, paying no mind to the commotion, the sun began to climb into the eastern sky. Under its light, sweat spilled down Naruto’s cheeks.
 Naruto had secretly picked up on it. The bottomless hatred planted inside of them.
 </details>
+
+<br>
+
+> [Table of contents](./en.md)
