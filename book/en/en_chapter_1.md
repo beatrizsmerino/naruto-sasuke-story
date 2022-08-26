@@ -1,7 +1,7 @@
 # Chapter 1
 ## Dark clouds appearing in a world of change
 
-<details>
+<details open>
 <summary>1.</summary>
 "Give my best regards to the Lord Raikage as well".
 The vast ocean was veiled in white mist. Not particularly good for visibility, but the women were accustomed to fog; they cloud see quite well, even in these conditions.

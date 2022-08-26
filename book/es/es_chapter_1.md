@@ -1,7 +1,7 @@
 # Capitulo 1
 ## Nubes oscuras que aparecen en un mundo de cambios
 
-<details>
+<details open>
 <summary>1.</summary>
 "Dale también mis saludos al Lord Raikage".
 El vasto océano estaba cubierto por una niebla blanca. No era especialmente buena para la visibilidad, pero las mujeres estaban acostumbradas a la niebla; veían bastante bien, incluso en estas condiciones.
