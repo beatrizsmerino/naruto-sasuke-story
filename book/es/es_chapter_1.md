@@ -31,6 +31,10 @@ Lo que significaba que tanto los ninjas como los ciudadanos medios también deb�
 En su lucha por deshacer la herencia negativa dejada por la anterior Mizukage y la propia historia de Kirigakure, la actual Mizukage, Mei, se encontraba con todo tipo de dificultades, por lo que sabía. El cambio no era algo sencillo.
 El barco que se dirigía al País del Rayo se había convertido en una sombra en la distancia en un abrir y cerrar de ojos. La Mizukage forzó la vista para seguir la brumosa nave que desaparecía en la blanca niebla.
 
+<p align="center">
+	<img src="../../README/images/shuriken_naruto.svg" width="50">
+</p>
+
 "Se ha nublado de repente".
 La ninja de Kirigakure que vigilaba en la cubierta del barco miró al cielo. Había pasado un día desde que el barco partió del puerto del País del Agua hacia el País del Rayo. Después de atravesar la niebla blanca, habían sido bendecidos con buen tiempo, pero de repente, empezaron a acumularse nubes negras sobre ellos. El viento sopló contra sus mejillas, y el rostro tranquilo del océano comenzó a cambiar.
 "Puede que se avecine una tormenta". La ninja vigilante dio un paso para ir a informar a la gente de dentro. Pero, de alguna manera, sintió que la miraban. Inconscientemente, se giró en esa dirección y vio una pequeña embarcación en el océano, en los descansos entre las olas. "¿Un barco de pesca?".
@@ -46,6 +50,10 @@ Los ninjas de Kirigakure empezaron a tejer señales para capturar y eliminar al 
 Sin embargo, el intruso volvió a levantar tranquilamente el borde del sombrero.
 "¡¡Qué—!!"
 Jóvenes ninjas con un futuro prometedor, veteranos shinobi que habían vivido la época conocida como la Aldea de la Niebla Sangrienta y habían sobrevivido a la Cuarta Gran Guerra Ninja, todos ellos se derrumbaron en el acto, incapaces de hacer nada contra este único oponente ninja.
+
+<p align="center">
+	<img src="../../README/images/shuriken_naruto.svg" width="50">
+</p>
 
 "Llegan tarde".
 Los ninjas de Kumogakure refunfuñaron, esperando bajo la llovizna para recibir a los ninjas de Kirigakure en el puerto del País de la Luz. La hora de llegada prevista había pasado hace tiempo, y no había llegado ningún mensaje que dijera que el barco llegaría tarde.
@@ -114,6 +122,10 @@ Si había una persona detrás, era posible que fuera un usuario de genjutsu. En 
 En la cima del árbol al que se había subido para comprobar su dirección, Sasuke miró una vez más a su alrededor con esos ojos. Varias nubes de humo blanco se elevaban en el aire más allá del bosque en el que estaba encaramado. Sin embargo, no era de los incendios. Era vapor. Estaba así de cerca de Yugakure, una aldea en la que brotaban manantiales de agua caliente de la tierra, a menudo utilizados como balneario. Estaba en la Tierra del Vapor, que no estaba lejos de la Tierra del Rayo, y los barcos siempre partían de allí hacia la Tierra del Agua.
 "Tal vez me dirija a la Tierra del Rayo, entonces". Dado que podía llegar a ella por una ruta terrestre, Sasuke puso primero su mirada en el País del Rayo, y se dejó caer en el bosque.
 
+<p align="center">
+	<img src="../../README/images/shuriken_naruto.svg" width="50">
+</p>
+
 Hasta que, en torno a la puesta de sol, Sasuke avanzó en silencio, sin descansar, corriendo a través de un matorral de bambú. Era difícil saltar a través del flexible y elástico bambú como lo hacía con los árboles. Mientras se movía por un terreno plagado de hojas de bambú para salir rápidamente de la arboleda, Sasuke pensó en la situación.
 Todavía estaba en el País del Vapor. Quería estar en la vecina Tierra de la Escarcha para cuando cambiara la fecha, y luego en la Tierra del Rayo y la aldea de Kumogakure al día siguiente.
 De repente, un pequeño asentamiento apareció en su campo de visión. Era el tipo de aldea rural que se vería en cualquier lugar, pero inconscientemente se detuvo.
@@ -171,6 +183,10 @@ Sasuke observó la escena, pero sólo había el bosque de bambú que se extendí
 "Hermano, ¿qué ocurre?" gritó Chino, preocupado.
 Sasuke observó la espesura de bambú una vez más antes de seguirla.
 
+<p align="center">
+	<img src="../../README/images/shuriken_naruto.svg" width="50">
+</p>
+
 Lo llevaron a la casa de Iou. Al parecer, Iou era el alcalde de este Takeno, y su casa era notablemente grande. Dentro había todo tipo de artículos hechos de bambú, desde accesorios de uso cotidiano hasta juguetes para niños.
 "Así que, al parecer, Takeno vende estas artesanías de bambú para ganarse la vida". Chino le mostró a Sasuke las cestas de mimbre de bambú, los pinchos y las cañas de pescar, entre otros artículos que había a un lado.
 "¡No vayas a tocar las cosas!" Iou le arrebató un pincho con un gruñido, pero Chino no se inmutó lo más mínimo; cogió una libélula de bambú y la hizo volar por la habitación. Por desgracia, parecía que iba a aterrizar encima de la cabeza de Sasuke, pero la atrapó antes de que lo hiciera, y la sostuvo frente a él.
@@ -209,6 +225,10 @@ Pero los caminos que los dos hombres habían recorrido eran exactamente opuestos
 "En cualquier caso, es suficiente por hoy, ¿no? No parece que el Grupo del Trueno Oscuro vaya a aparecer. Descansemos". Chino hizo un alarde de bostezar enormemente.
 "Ya lo creo. Aquí hay habitaciones. Usadlas si queréis. ...Y si vienen, cuento con vosotros", dijo Iou, como para dejar claro el punto. Sus ojos mostraban que estaba seguro de que esta aldea iba a ser atacada. Y en el fondo de esos ojos había una oscuridad que buscaba el castigo para Trueno Oscuro por haber matado a su hija.
 Aunque Sasuke ayudara a resolver este incidente, no tenía intención de echar una mano a la venganza. Aunque probablemente Iou no aceptaría eso. En lugar de responder al anciano, Sasuke se dirigió a la habitación que le habían asignado.
+
+<p align="center">
+	<img src="../../README/images/shuriken_naruto.svg" width="50">
+</p>
 
 "¿Eh? Dígalo una vez más".
 Una pequeña aldea anida en las montañas. Pero ya no había aldeanos en ella. Casas destruidas, gente cruelmente obligada a exhalar su último aliento. Sólo las bestias que captaban el olor de la sangre estaban vivas.
@@ -286,6 +306,10 @@ Naruto asintió, y los tres salieron volando en dirección a las llamas que lam�
 "¡Sexto, yo iré a dar la orden para las actividades de extinción de incendios!"
 dijo Shizune, y Kakashi asintió en su dirección antes de dar la orden de reunir información en todas las áreas. Miró las cartas de Kirigakure y Kumogakure que estaban sobre su escritorio.
 "¿Qué está pasando aquí exactamente...?"
+
+<p align="center">
+	<img src="../../README/images/shuriken_naruto.svg" width="50">
+</p>
 
 A lomos del enorme pájaro de la Bestia de Caricatura que Sai había dibujado, Naruto y los demás se apresuraron en dirección a las puertas y al fuego cercano. Pero cuando estaban a mitad de camino, Sai chocó contra los tejados de los edificios.
 "¡Sai, qué está pasando!" Gritó Naruto sorprendido, cuando vio una célula de tres personas delante de ellos corriendo por los tejados hacia la puerta A-un. "¡Oh! ¿Shikamaru?"
@@ -402,11 +426,19 @@ El cuerpo de ejército de ninjas con control mental se acercaba lentamente. Ojos
 "En ese caso, no podemos descuidarnos con ellos". Una mirada seria se levantó en el rostro de Shikamaru mientras miraba fijamente a los ninjas que se acercaban.
 Y es que esta situación no sólo ocurría en Konoha.
 
+<p align="center">
+	<img src="../../README/images/shuriken_naruto.svg" width="50">
+</p>
+
 "¿Por qué estarían aquí los ninjas del cuerpo de entrenamiento de la alianza?"
 A diferencia de Konoha, donde pocos de sus propios ninjas habían aparecido, a Kirigakure le habían lanzado varias docenas de los suyos desde el principio, y estos ninjas habían llegado al interior de la aldea. Luchando por defender las instalaciones clave de Kiri, Chojuro apretó los dientes ante el humo que se elevaba en todas direcciones.
 "Chojuro, la evacuación de los ancianos y los niños ha concluido", La Mizukage apareció ante él para informar del fin de la evacuación. "Me voy". Comenzó a correr hacia la zona central de la batalla. "Diles que me sigan. Tengo el deber de proteger a la gente de la aldea. Eso... significa ellos también". Miró el humo que se elevaba en mechones, a diferencia de la niebla que siempre se cernía sobre la aldea. Estas personas con control mental también eran ninjas de Kirigakure.
 "¡La protegeré, Lady Mizukage, a la aldea de Kirigakure... absolutamente!"
 "Mm, cuento con usted".
+
+<p align="center">
+	<img src="../../README/images/shuriken_naruto.svg" width="50">
+</p>
 
 "¡Jefe! ¡Por favor, déjanos esto a nosotros! ¡Lo siento!"
 "¡Ngh!"
@@ -415,6 +447,10 @@ Del mismo modo, los ninjas de Kumogakure también se quedaron mirando a sus comp
 "¡Habrá demasiado caos!", gritaron todos los ninjas a su alrededor.
 "C, ¡¿no has detectado aún la verdadera identidad del enemigo?!" Darui dirigió su mirada al ninja sensor C.
 C frunció el ceño y movió la cabeza de un lado a otro.
+
+<p align="center">
+	<img src="../../README/images/shuriken_naruto.svg" width="50">
+</p>
 
 Sus oponentes eran ninjas bajo un genjutsu. Y si les hacían daño, explotaban. No tenían voluntad propia. ¿Qué demonios se suponía que debían hacer?
 "¡Naruto!"

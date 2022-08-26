@@ -31,6 +31,10 @@ Which meant that both ninja and average citizens also needed to change to adapt 
 In her struggle to undo the negative inheritance left by the former Mizukage and Kirigakure's own history, the current Mizukage, Mei, was coming up against all kind of difficulties, so she knew. Change was no simple mater.
 The ship bound for the Land of Lightning had become a shadow in the distance in the blink of an eye. The Mizukage strained her eyes to follow the hazy ship disappearing into the white mist.
 
+<p align="center">
+	<img src="../../README/images/shuriken_naruto.svg" width="50">
+</p>
+
 "It got cloudy all of a sudden".
 The Kirigakure ninja keeping watch on the deck of the ship looked up at the sky. It had been a day since the ship set out from the port in the Land of Water toward the Land of Lightning. After they slipped through the white fog, they had been blessed with good weather, but abruptly, black clouds started gathering above them. The wind blew against her cheeks, and the calm face of the ocean began to change.
 "A storm might be coming". the watch ninja took a step to go and report to the people inside. But she felt eyes on her somehow. Unconsciously, she turned in that direction and saw a small boat in the ocean, in the breaks between the waves. "A fishing boat?".
@@ -46,6 +50,10 @@ The ninja Kirigakure began to weave signs to capture and eliminate the intruder.
 However, the intruder calmly lifted the edge of the hat again.
 "Wha—!!"
 Young ninja with promising futures, veteran shinobi who had lived through the time known as the Village of the Bloody Mist and survived the Fourth Great Ninja War, all of them crumpled on the spot, unable to do anything against this alone ninja opponent.
+
+<p align="center">
+	<img src="../../README/images/shuriken_naruto.svg" width="50">
+</p>
 
 "They're late".
 The ninja of Kumogakure grumbled, waiting in the drizzling rain to greet the ninja of Kirigakure at the port in the Land of Lighting. The scheduled arrival time was long past, and no message had come to say the ship would be late.
@@ -114,6 +122,10 @@ If a person was behind it, it was posible that they were a genjutsu user. In whi
 At the top of the tree he had climbed to check his direction, Sasuke looked around once more with those eyes. Several clouds of white smoke piffed up info the air beyond the forest he was perched in. Not from fires, though. It was steam. He was that close to Yugakure, a village where hot springs welled up out of the earth, often used as a hot-spring resort. It was in the Land of Steam, which was not far from the Land of Linghtning, and ships always departed from there to the Land of Water.
 "Maybe I'll head for the Land of Lightning, then". Given that he could reach it via a land route, Sasuke first set his sights on the Land of Lightning, and dropped back down into the forest.
 
+<p align="center">
+	<img src="../../README/images/shuriken_naruto.svg" width="50">
+</p>
+
 Until around the time the sun was setting, Sasuke charged forward silently, without resting, racing through a bamboo thicket. It was hard to jump through the supple, elastic bamboo the way he did with trees. As he moved across ground littered with bamboo leaves to quickly make his way out of the grove, Sasuke thought about the situation.
 He was still in the Land of Steam. He wanted to be in the neighboring Land of Frost by the time the date changed, and then in the Land of Lightning and the village of Kumogakure the following day.
 Abruptly, a small settlement came into his field of view. It was the sort of country village you'd see anywhere, but he unconsciously came to a stop.
@@ -171,6 +183,10 @@ Sasuke surveyed the scene, but there was only the bamboo forest spreading out be
 "Brother what's the matter?" Chino called out, concerned.
 Sasuke looked the bamboo thicket over once more before following after her.
 
+<p align="center">
+	<img src="../../README/images/shuriken_naruto.svg" width="50">
+</p>
+
 They brought him to Iou's house. Apparently, Iou was the mayor of this Takeno, and his home was remarkably large. Inside were all kinds of items made of bamboo, from everyday accessories to children's toys.
 "So, like, Takeno apparently sells these bamboo crafts to make a living". Chino showed Sasuke the bamboo wicker baskets, skewers, and fishing rods, among other items off to one side.
 "Don't go touching things!" Iou snatched a skewer from her with a snarl, but Chino wasn't put off in the least; she picked up a bamboo dragonfly and set it flying through the room. Unfortunately, it looked like it was going to land on top of Sasuke's head, but he caught it before it did, and held it up in front of him.
@@ -209,6 +225,10 @@ But the paths the two men had gone down were exactly opposite. Even after his lo
 "At any rate, that's enough for today, right? It doesn't seem like the Dark Thunder Group is gonna show. Let us rest". Chino made a show of yawning hugely.
 "I s'pose. There's rooms here. Use 'em if you want. ...And if they do come, I'm really counting on you", Iou said, as if to drive the point home. His eyes showed that he was certain that this village was going to be attacked. And deeper in those eyes was a darkness that sought punishment for Dark Thunder for killing his daughter.
 Even if Sasuke helped to resolve this incident, he had no intention of lending a hand to revenge. Although Iou likely wouldn't accept that. Instead of answering the old man, Sasuke went into the room he had been given.
+
+<p align="center">
+	<img src="../../README/images/shuriken_naruto.svg" width="50">
+</p>
 
 "Huh? Say that one more tiiiime".
 A small village nestle in the mountains. But there were no longer any villagers in it. Destroyed houses, people cruelly forced to breathe their last. Only the beasts that caught the scent of blood were lively.
@@ -286,6 +306,10 @@ Naruto nodded, and the three flew of in the direction of the flames licking up i
 "Sixth, I'll go give the order for firefighting activities!"
 Shizune said, and Kakashi nodded in he direction before giving the order to gather information in all areas. He glanced at the letters from Kirigakure and Kumogakure laying on his desk.
 "What exactly is going on here...?"
+
+<p align="center">
+	<img src="../../README/images/shuriken_naruto.svg" width="50">
+</p>
 
 On the back of the enormous Cartoon Beast bird Sai had drawn, Naruto and the others hurried in the direction of the gates and the nearby fire. But when they were halfway there, Sai scrape against the roofs of buildings.
 "Sai, what's gong on ?!" Naruto shouted in surprise, when he spotted a three-person cell ahead of them racing along the rooftops toward A-un gate. "Oh! Shikamaru?!"
@@ -402,11 +426,19 @@ The army corps of mind-controlled ninja was slowly approaching. Dull eyes that g
 "In which case, we can't be careless with them". A serious look rose up on Shikamaru's face as he stared at the approaching ninja.
 And this situation was not just happening in Konoha.
 
+<p align="center">
+	<img src="../../README/images/shuriken_naruto.svg" width="50">
+</p>
+
 "Why would the ninja from the alliance training corps be here?"
 Unlike Konoha, where few of its own ninja had shown up, Kirigakure had had several dozen of their own thrown at them right from the start, and these ninja had made it into the interior of the village. Fighting to defend Kiri's key facilities, Chojuro gritted his teeth at the smoke rising up in every direction.
 "Chojuro, the evacuation of the elderly and the children is complete", The Mizukage appeared before him to report the end of the evacuation. "I'm going". She started to run off to the central area of the battle. "Tell them to follow me. I have a duty to protect the people of the village. That...means them too". She looked at the smoke wafting up in tufts, unlike the fog that always hung over the village. These mind-controlled people were also ninja of Kirigakure.
 "I'll protect you, Lady Mizukage —the village of Kirigakure...absolutely!"
 "Mm, I'm counting on you".
+
+<p align="center">
+	<img src="../../README/images/shuriken_naruto.svg" width="50">
+</p>
 
 "Boss! Please leave this to us! Sorry!"
 "Ngh!"
@@ -415,6 +447,10 @@ Similarly, the ninja of Kumogakure also stared at their completely changed comra
 "There'll be too much chaos!" all the ninja arround him shouted.
 "C, haven't you detected the true identity of the enemy yet?!" Darui turned his gaze on the sensor ninja C.
 C frowned and shook his head from side to side.
+
+<p align="center">
+	<img src="../../README/images/shuriken_naruto.svg" width="50">
+</p>
 
 Their opponents were ninja under a genjutsu. And if you hurt them, they exploded. They had no will of their own. What on earth were they supposed to do?
 "Naruto!"
