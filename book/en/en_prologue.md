@@ -1,4 +1,4 @@
-> [Table of contents](./en.md)
+> [Table of contents](./en.md#-table-of-contents)
 
 <br>
 
@@ -23,4 +23,4 @@ The future reflected in these eyes that once stared into darkness...
 
 <br>
 
-> [Table of contents](./en.md)
+> [Table of contents](./en.md#-table-of-contents)

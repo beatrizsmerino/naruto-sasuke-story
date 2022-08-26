@@ -1,4 +1,4 @@
-> [Table of contents](./en.md)
+> [Table of contents](./en.md#-table-of-contents)
 
 <br>
 
@@ -534,4 +534,4 @@ Naruto had secretly picked up on it. The bottomless hatred planted inside of the
 
 <br>
 
-> [Table of contents](./en.md)
+> [Table of contents](./en.md#-table-of-contents)

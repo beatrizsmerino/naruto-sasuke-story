@@ -1,4 +1,4 @@
-> [Tabla de contenidos](./es.md)
+> [Tabla de contenidos](./es.md#-tabla-de-contenidos)
 
 <br>
 
@@ -23,4 +23,4 @@ El futuro se refleja en estos ojos que una vez miraron a la oscuridad...
 
 <br>
 
-> [Tabla de contenidos](./es.md)
+> [Tabla de contenidos](./es.md#-tabla-de-contenidos)

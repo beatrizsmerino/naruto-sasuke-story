@@ -1,4 +1,4 @@
-> [Tabla de contenidos](./es.md)
+> [Tabla de contenidos](./es.md#-tabla-de-contenidos)
 
 <br>
 
@@ -534,4 +534,4 @@ Naruto lo había captado en secreto. El odio sin fondo sembrado en su interior.
 
 <br>
 
-> [Tabla de contenidos](./es.md)
+> [Tabla de contenidos](./es.md#-tabla-de-contenidos)
