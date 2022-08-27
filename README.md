@@ -21,6 +21,9 @@ Precise translations of texts and complete files in an instant, with the online 
 Picture to text converter allows you to extract text from image or convert PDF to Doc, Excel or Text formats
 using Optical Character Recognition (OCR) software online.
 
+- [Language tool](https://languagetool.org/es)  
+Grammar and style checker for Spanish/Spanish, English, Catalan and 20 other languages.
+
 - [Get emoji](https://getemoji.com/)  
 ✂️ Copy and 📋 Paste Emoji 👍 
 
