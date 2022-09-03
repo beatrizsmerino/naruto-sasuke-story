@@ -9,7 +9,7 @@
 <summary>1.</summary>
 "Give my best regards to the Lord Raikage as well".</br>
 The vast ocean was veiled in white mist. Not particularly good for visibility, but the women were accustomed to fog; they cloud see quite well, even in these conditions.</br>
-Enclosed on all four sides by the ocean, The Land of Water, one of the lands known as the five great ninja nations, was also home to the village of Kirigakure. The days when Kirigakure was known as the Village of the Bloody Mist and the origin of Akatsuki were in the distant past. Yagura, the Fourth Mizukage, had dirtied his hands with all sorts of evil, but the genjutsu cast on him had been released by the late Ao's byakugan, and with Terumi Mei's assumption of the office of Fifth Mizukage, the situation in Kirigakure was steadily improving.</br>
+Enclosed on all four sides by the ocean, The Land of Water, one of the lands known as the five great ninja nations, was also home to the village of Kirigakure. The days when Kirigakure was known as the Village of the Bloody Mist and the origin of Akatsuki were in the distant past. Yagura, the Fourth Mizukage, had dirtied his hands with all sorts of evil, but the genjutsu cast on him had been released by the late Ao's Byakugan, and with Terumi Mei's assumption of the office of Fifth Mizukage, the situation in Kirigakure was steadily improving.</br>
 And then, the Fourth Great Ninja War changed the world completely. The constantly quarrelling five great ninja lands had joined hands and come through the terrible battles together, becoming war comrades. Even after the Great War, they had worked together to overcome the difficulties that arose to sake the world. Many lives had been sacrificed in the war, and those who survived lived with great sadness, but the things gained were also great.</br>
 "Please be thorough in your duties in the joint training between Kirigakure and Kumogakure!" Chojuro —carrying the large twinsword Hiramekarei that was proof that he was one of the Seven Ninja Swordsmen— called to the ninja preparing to sail away.</br>
 The surf pounded against the port. A ship large enough to carry a hundred people was currently moored there, in this critical location for the Land of Water, surrounded by the sea as the country was.</br>
@@ -499,7 +499,7 @@ Their opponents were ninja under a genjutsu. And if you hurt them, they exploded
 A new voice rang out. He turned around and saw a woman running toward him, long hair swinging.</br>
 "Hinata?!"</br>
 "After you noticed Tadaichi's explosion and jumped back, I called her through Ino", Shikamaru said to the stunned Naruto.</br>
-Born into the main family of the Hyuga clan, Hinata was the possessor of the byakugan. She had a wide field of vision and the ability to see through things, among others.</br>
+Born into the main family of the Hyuga clan, Hinata was the possessor of the Byakugan. She had a wide field of vision and the ability to see through things, among others.</br>
 "Hinata, it seems like everyone's under a genjutsu. Is there someone controlling them somewhere?"</br>
 "Understood. I'll look. "Hinata —now also Naruto's wife— focused her power in her eyes. The blood vessels popped up one after another and then her eyes opened.</br>
 Byakugan!</br>
@@ -509,7 +509,7 @@ She examined the area with the visual power to see through everything. She stret
 "What? There's no one?!" Sakura shouted in surprise. "Then how were they being controlled?"</br>
 "But there's foreign chakra running through the bodies of those people".</br>
 "What d'you mean, Hinata?"</br>
-Hinata's byakugan had seen it, foreign chakra running through every inch of their bodies. Such a slight aura that it couldn't be seen without the byakugan. It was possible that this was what was controlling them.</br>
+Hinata's Byakugan had seen it, foreign chakra running through every inch of their bodies. Such a slight aura that it couldn't be seen without the Byakugan. It was possible that this was what was controlling them.</br>
 "So then, we just have to take out that chakra!" If they just got rid of the source, the problem would be resolved. That's what Naruto thought, but Hinata's face remained clouded.</br>
 "That chakra...it's moving around like part of the body. It might have fused within their bodies".</br>
 And on top of that, they would have to get rid of the chakra without causing external injuries.</br>
@@ -530,7 +530,7 @@ He was deliberately provoking them. It wasn't clear whether it worked or not, bu
 Shadow Possession!</br>
 His shadow, lit up by the gentle light of the moon, stretched out toward his opponent.</br>
 "Okay!" His shadow connected with his opponent's, and the man suddenly stopped on the spot. Shikamaru spread his legs slightly and dropped his arms to his sides, and his opponent did the same thing. "Hinata!"</br>
-"Yes!" With the byakugan, Hinata looked at the man's pressure points. The one she was aimaing for was a quick cut-off pressure point. She stretched out an index finger. She absolutely could not miss. She imagined the movements of Hyuga Neji, the greatest genius since the start of the Hyuga clan.</br>
+"Yes!" With the Byakugan, Hinata looked at the man's pressure points. The one she was aimaing for was a quick cut-off pressure point. She stretched out an index finger. She absolutely could not miss. She imagined the movements of Hyuga Neji, the greatest genius since the start of the Hyuga clan.</br>
 "Hah!" Her finger shot out in alignment with her breathing and dug into the man's body. After the span of a breath, the strength slipped out of him. She had stabbed the cutoff pressure point correctly.</br>
 Shikamaru released his Shadow Possession and the man's body listed to one side.</br>
 "You did it" Having led the man away, Naruto's shadow clone now held him up as he looked at Hinata.</br>

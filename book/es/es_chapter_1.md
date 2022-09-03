@@ -9,7 +9,7 @@
 <summary>1.</summary>
 "Dale también mis saludos al Lord Raikage".</br>
 El vasto océano estaba cubierto por una niebla blanca. No era especialmente buena para la visibilidad, pero las mujeres estaban acostumbradas a la niebla; veían bastante bien, incluso en estas condiciones.</br>
-Encerrada por los cuatro costados por el océano, La Tierra del Agua, una de las tierras conocidas como las cinco grandes naciones ninja, era también el hogar de la aldea de Kirigakure. Los días en que Kirigakure era conocida como la Aldea de la Niebla Sangrienta y el origen de Akatsuki quedaron en un pasado lejano. Yagura, el Cuarto Mizukage, se había ensuciado las manos con todo tipo de maldades, pero el genjutsu que se le había aplicado había sido liberado por el byakugan del difunto Ao, y con la asunción del cargo de Quinto Mizukage por parte de Terumi Mei, la situación en Kirigakure mejoraba constantemente.</br>
+Encerrada por los cuatro costados por el océano, La Tierra del Agua, una de las tierras conocidas como las cinco grandes naciones ninja, era también el hogar de la aldea de Kirigakure. Los días en que Kirigakure era conocida como la Aldea de la Niebla Sangrienta y el origen de Akatsuki quedaron en un pasado lejano. Yagura, el Cuarto Mizukage, se había ensuciado las manos con todo tipo de maldades, pero el genjutsu que se le había aplicado había sido liberado por el Byakugan del difunto Ao, y con la asunción del cargo de Quinto Mizukage por parte de Terumi Mei, la situación en Kirigakure mejoraba constantemente.</br>
 Y entonces, la Cuarta Gran Guerra Ninja cambió el mundo por completo. Las cinco grandes tierras ninja, en constante disputa, habían unido sus manos y superado juntas las terribles batallas, convirtiéndose en camaradas de guerra. Incluso después de la Gran Guerra, habían trabajado juntos para superar las dificultades que surgieron para el bien del mundo. Muchas vidas habían sido sacrificadas en la guerra, y los que sobrevivieron vivieron con gran tristeza, pero las cosas ganadas también fueron grandes.</br>
 "¡Por favor, sean minuciosos en sus deberes en el entrenamiento conjunto entre Kirigakure y Kumogakure!" Chojuro —portando la gran espada gemela Hiramekarei que era la prueba de que era uno de los Siete Espadachines Ninja— llamó a los ninjas que se preparaban para zarpar.</br>
 El oleaje golpeaba el puerto. Un barco lo suficientemente grande como para transportar a un centenar de personas estaba amarrado allí, en este lugar crítico para la Tierra del Agua, rodeado por el mar como estaba el país.</br>
@@ -499,7 +499,7 @@ Sus oponentes eran ninjas bajo un genjutsu. Y si les hacían daño, explotaban. 
 Una nueva voz sonó. Se dio la vuelta y vio a una mujer que corría hacia él, con el pelo largo balanceándose.</br>
 "¡¿Hinata?!"</br>
 "Después de que te dieras cuenta de la explosión de Tadaichi y saltaras hacia atrás, la llamé a través de Ino", dijo Shikamaru al aturdido Naruto.</br>
-Nacida en la familia principal del clan Hyuga, Hinata era la poseedora del byakugan. Tenía un amplio campo de visión y la capacidad de ver a través de las cosas, entre otras cosas.</br>
+Nacida en la familia principal del clan Hyuga, Hinata era la poseedora del Byakugan. Tenía un amplio campo de visión y la capacidad de ver a través de las cosas, entre otras cosas.</br>
 "Hinata, parece que todos están bajo un genjutsu. ¿Hay alguien que los controla en alguna parte?"</br>
 "Entendido. Voy a mirar". Hinata -ahora también esposa de Naruto- concentró su poder en sus ojos. Los vasos sanguíneos surgieron uno tras otro y entonces sus ojos se abrieron.</br>
 ¡Byakugan!</br>
@@ -509,7 +509,7 @@ Examinó la zona con el poder visual de ver a través de todo. Extendió su ment
 "¿Qué? ¡¿No hay nadie?!" Gritó Sakura sorprendida. "¿Entonces cómo estaban siendo controlados?"</br>
 "Pero hay chakra extraño corriendo por los cuerpos de esas personas".</br>
 "¿Qué quieres decir, Hinata?"</br>
-El byakugan de Hinata lo había visto, chakra extraño recorriendo cada centímetro de sus cuerpos. Un aura tan leve que no podía verse sin el byakugan. Era posible que eso fuera lo que los controlaba.</br>
+El Byakugan de Hinata lo había visto, chakra extraño recorriendo cada centímetro de sus cuerpos. Un aura tan leve que no podía verse sin el Byakugan. Era posible que eso fuera lo que los controlaba.</br>
 "¡Entonces, sólo tenemos que sacar ese chakra!" Si sólo se deshacían de la fuente, el problema estaría resuelto. Eso fue lo que pensó Naruto, pero el rostro de Hinata seguía nublado.</br>
 "Ese chakra... se mueve como si fuera parte del cuerpo. Puede que se haya fusionado dentro de sus cuerpos".</br>
 Y encima, tendrían que deshacerse del chakra sin causar heridas externas.</br>
@@ -530,7 +530,7 @@ Los estaba provocando deliberadamente. No estaba claro si funcionaba o no, pero 
 ¡Posesión de la sombra!</br>
 Su sombra, iluminada por la suave luz de la luna, se extendió hacia su oponente.</br>
 "¡Bien!" Su sombra se conectó con la de su oponente, y el hombre se detuvo repentinamente en el lugar. Shikamaru abrió ligeramente las piernas y dejó caer los brazos a los lados, y su oponente hizo lo mismo. "¡Hinata!"</br>
-"¡Sí!" Con el byakugan, Hinata miró los puntos de presión del hombre. El que ella estaba apuntando era un punto de presión de corte rápido. Estiró un dedo índice. No podía fallar en absoluto. Se imaginó los movimientos de Hyuga Neji, el mayor genio desde el inicio del clan Hyuga.</br>
+"¡Sí!" Con el Byakugan, Hinata miró los puntos de presión del hombre. El que ella estaba apuntando era un punto de presión de corte rápido. Estiró un dedo índice. No podía fallar en absoluto. Se imaginó los movimientos de Hyuga Neji, el mayor genio desde el inicio del clan Hyuga.</br>
 "¡Hah!" Su dedo salió disparado en línea con su respiración y se clavó en el cuerpo del hombre. Después del lapso de una respiración, la fuerza se deslizó fuera de él. Ella había apuñalado el punto de presión de corte correctamente.</br>
 Shikamaru liberó su Posesión de la Sombra y el cuerpo del hombre se listó a un lado.</br>
 "Lo lograste" Habiendo alejado al hombre, el clon de sombra de Naruto lo sostuvo ahora mientras miraba a Hinata.</br>
