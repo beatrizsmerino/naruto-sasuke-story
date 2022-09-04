@@ -47,7 +47,7 @@ El barco que se dirigía al País del Rayo se había convertido en una sombra en
 La ninja de Kirigakure que vigilaba en la cubierta del barco miró al cielo. Había pasado un día desde que el barco partió del puerto del País del Agua hacia el País del Rayo. Después de atravesar la niebla blanca, habían sido bendecidos con buen tiempo, pero de repente, empezaron a acumularse nubes negras sobre ellos. El viento sopló contra sus mejillas, y el rostro tranquilo del océano comenzó a cambiar.</br>
 "Puede que se avecine una tormenta". La ninja vigilante dio un paso para ir a informar a la gente de dentro. Pero, de alguna manera, sintió que la miraban. Inconscientemente, se giró en esa dirección y vio una pequeña embarcación en el océano, en los descansos entre las olas. "¿Un barco de pesca?".</br>
 A bordo de la embarcación había varias personas vestidas como pescadores con impermeables de paja y sombreros de 'amigasa' tejidos. Pero había muchas islas de todos los tamaños en esta zona, y no pocos de sus habitantes se ganaban la vida pescando. No había necesidad de preocuparse especialmente. O eso pensaba ella, pero el barco se dirigía poco a poco hacia ellos.</br>
-"¡Oye! ¡Nos vas a golpear!", gritó en señal de advertencia, pero el barco no mostraba ningún signo de detenerse. "¡Oye!" La ninja de guardia se apartó del barco, agarró su protector de frente con el escudo de Kirigakure y lo levantó. Tal vez se desprendía de ello un alarde de que eran ninjas de Kirigakure, una arrogancia inconsciente de que los pescadores como ellos no podían hacer nada al respecto.</br>
+"¡Oye! ¡Nos vas a golpear!", gritó en señal de advertencia, pero el barco no mostraba ningún signo de detenerse. "¡Oye!" La ninja de guardia se inclinó desde el barco, agarró su protector de frente con el escudo de Kirigakure y lo levantó. Tal vez se desprendía de ello un alarde de que eran ninjas de Kirigakure, una arrogancia inconsciente de que los pescadores como ellos no podían hacer nada al respecto.</br>
 Una de las personas de la barca se levantó. Con el sombrero tejido profundamente sobre sus ojos. Los dedos agarrando el borde, levantándolo lentamente. La barbilla oculta, la boca, la nariz se revelaron, y entonces...</br>
 En el momento en que vio los ojos, la ninja de guardia se cayó.</br>
 "¡H—hey! ¡¿Qué pasa?!" Los ojos de los demás ninjas de la cubierta se abrieron de par en par al ver a su camarada caer repentinamente a la cubierta después de llamar a la pequeña embarcación que tenían delante. Pero antes de que ninguno de ellos pudiera correr a su lado, percibieron un aura anormal.</br>
@@ -92,7 +92,7 @@ Finalmente, alguien apareció desde el interior del barco. Un ninja que llevaba 
 Los ninjas de Kumogakure estaban desconcertados por este repentino acontecimiento.</br>
 El ninja del sombrero bajó de un salto del barco y arrojó el sombrero, revelando lo que había estado oculto bajo él.</br>
 "¡¿Es-Esos ojos?!"</br>
-Los ojos carmesí brillaban inquietantemente bajo la lluvia. Ni uno solo de los ninjas de Kumogakure se libró de quedar atrapado en su brillo.</br>
+Los ojos carmesí brillaban inquietantemente bajo la lluvia. Ni uno solo de los ninjas de Kumogakure se libró de quedar atrapado por su mirada.</br>
 "Mierda, jutsu ocular..."</br>
 Nada más ver ese brillo rojo, los ninjas de Kumogakure perdieron todas sus fuerzas y cayeron al suelo.</br>
 "Eso fue maravilloso". Los compañeros de Ojos Rojos bajaron de un salto de la nave tras ver cómo se desarrollaba la escena.</br>
@@ -110,7 +110,7 @@ No permitiré esta paz.
 El bosque era espeso. La hiedra se enroscaba alrededor de los gruesos troncos, hasta las raíces de los árboles musgosos, borrando la frontera entre el árbol y la tierra. Este árbol en particular, que extendía sus ramas hacia el cielo, buscando la luz del sol, tenía cientos de años. Pero más allá había jóvenes brotes que aún no habían crecido.</br>
 Alguien miraba todo desde arriba. El ojo izquierdo, que apenas asomaba entre el pelo que colgaba de su cara, era el Rinnegan supremo. A primera vista, el derecho parecía un ojo normal, pero albergaba el Sharingan, el kekkei genkai del clan Uchiha. El nombre del hombre era Uchiha Sasuke.</br>
 En la cima del enorme árbol, Sasuke contemplaba la vista en todas las direcciones. Había superado la Cuarta Gran Guerra Ninja y había vuelto a ser un shinobi de Konoha.
-Sin embargo, en lugar de decir en la aldea, había emprendido un viaje.</br>
+Sin embargo, en lugar de quedarse en la aldea, había emprendido un viaje.</br>
 Quiero saber cómo es este mundo ninja, —cómo me parece el mundo ahora.</br>
 Había estado viajando durante varios años, y había visto cosas que probablemente no habría notado cuando estaba sumido en la oscuridad. También había habido momentos en los que recordaba con dulzura el pasado del que había intentado liberarse. Hubo momentos en los que recordó a sus amigos. Vio con sus propios ojos las cicatrices de la guerra; tocó la tristeza de la gente, y sintió la inutilidad de la venganza.</br>
 En el pasado, Sasuke había soportado el dolor y el sufrimiento de que le arrebataran su familia y su clan con la poderosa medicina de la venganza. Pero en la profundidad de esa oscuridad, se había confundido sobre el camino a seguir. Había perdido de vista lo que era importante. Había tardado mucho tiempo en ser capaz de entender y aceptar eso, pero Sasuke lo sentía realmente ahora.</br>
@@ -172,7 +172,7 @@ Sasuke no tuvo la oportunidad de preguntar siquiera qué estaba pasando; en cual
 Sasuke cortó fácilmente el extremo de la misma. Con una velocidad increíble, cortó la lanza en finas rondas hasta la mano del anciano, antes de llevar la punta de su espada hasta la tráquea del anciano. Sasuke presionó la hoja contra su garganta, como para que notara la sensación de frío de la espada.</br>
 "Ee, eeep". El bambú, cortado en una sola articulación, cayó de la mano del anciano. Gotas de sudor aparecieron en su piel seca y cayeron al suelo.</br>
 "¡Ah, ah e—espera, hermano! ¡Jefe! ¡Guapo! ¡Varonil! ¡No mates al viejo!" Presa del pánico, Chino se acercó a Sasuke como para calmarlo.</br>
-Al no responder a esto, Sasuke le dijo al viejo: "Tienes la peor idea".</br>
+Al no responder a esto, Sasuke le dijo al viejo: "Tienes una idea equivocada".</br>
 "Ja, ja...".</br>
 "No conozco a este Trueno Oscuro".</br>
 "Eee, eee..." Las palabras de Sasuke no parecían llegar a los oídos del anciano, que seguía respirando con dificultad, temblando de miedo.
