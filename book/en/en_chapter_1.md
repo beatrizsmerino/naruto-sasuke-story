@@ -24,7 +24,7 @@ As Chojuro and the others chatted cheerfully, the look on the Mizukage's face gr
 Noticing her silence, Chojuro cocked his head curiously to one side and looked at her. "Lady Mizukage, is something the matter?".</br>
 She exhaled a long breath and collected her scattered nerves.
 "I just remembered things with Ao... If he were here..."</br>
-"Oh, Ao... I wish hr could see me now too". Chojuro had apparently taken her statement to mean she wanted to show off the now-grown Chojuro to Ao.</br>
+"Oh, Ao... I wish he could see me now too". Chojuro had apparently taken her statement to mean she wanted to show off the now-grown Chojuro to Ao.</br>
 Rather than correcting him, the Mizukage smiled and brought heir conversations together with a "Truly".</br>
 "All right, then! We'll be off!" a ninja on the ship called, now that all members were aboard; the ship slowly left the port.</br>
 "The five great nations hated each other so much, and now we can join hands like this", Chojuro murmured deeply moved, as they watched it sail off in mist of sea spray. "It'is simply incredible, isn't it?".</br>
@@ -32,7 +32,7 @@ Rather than correcting him, the Mizukage smiled and brought heir conversations t
 Back then, if a ninja was determined to be a burden, they were simply thrown to the wolves. It had indeed been a time when everything was suspected, when they had lost sight of what they were living for, what they believed in, as if they has been in a thick fog. That environment had produced, among others, Momochi Zabuza, feared as a demon; Haku of the Yuki clan, toyed with by the sad destiny of kekkei genkai; and Hoshigaki Kisame, who bore the darkness of Kirigakure alone —so-called "evil" ninja. As a ninja from the same village, from the same era, however, the Mizukage secretly had complicated feelings about calling them evil.</br>
 With the tensions among the five great nations easing, and thus, fewer and fewer battles, this world, formerly centered around fighting, was now changing from its foundations.
 Which meant that both ninja and average citizens also needed to change to adapt to these new times. But not everyone could accept this. There were inevitably going to be people who rejected and despised the idea of this change, who would try to destroy this new world.</br>
-In her struggle to undo the negative inheritance left by the former Mizukage and Kirigakure's own history, the current Mizukage, Mei, was coming up against all kind of difficulties, so she knew. Change was no simple mater.</br>
+In her struggle to undo the negative inheritance left by the former Mizukage and Kirigakure's own history, the current Mizukage, Mei, was coming up against all kinds of difficulties, so she knew. Change was no simple matter.</br>
 The ship bound for the Land of Lightning had become a shadow in the distance in the blink of an eye. The Mizukage strained her eyes to follow the hazy ship disappearing into the white mist.
 
 </br>
@@ -45,9 +45,9 @@ The ship bound for the Land of Lightning had become a shadow in the distance in 
 
 "It got cloudy all of a sudden".</br>
 The Kirigakure ninja keeping watch on the deck of the ship looked up at the sky. It had been a day since the ship set out from the port in the Land of Water toward the Land of Lightning. After they slipped through the white fog, they had been blessed with good weather, but abruptly, black clouds started gathering above them. The wind blew against her cheeks, and the calm face of the ocean began to change.</br>
-"A storm might be coming". the watch ninja took a step to go and report to the people inside. But she felt eyes on her somehow. Unconsciously, she turned in that direction and saw a small boat in the ocean, in the breaks between the waves. "A fishing boat?".</br>
+"A storm might be coming". The watch ninja took a step to go and report to the people inside. But she felt eyes on her somehow. Unconsciously, she turned in that direction and saw a small boat in the ocean, in the breaks between the waves. "A fishing boat?".</br>
 Aboard the vessel were several people dressed like fishermen in straw raincoats and woven 'amigasa' hats. But there were many islands of all sizes in this area, and more than a few of their residents made their living fishing. There was no need to be particularly concerned. Or so she thought, but the boat was gradually heading toward them.</br>
-"Hey! You're going to hit us!" she called out a warning, but the boat didn't show any signs of stopping. "Hey!" The watch ninja learned over from the ship, grabbed her forehead protector with the Kirigakure crest on it, and held it up. Perhaps there came through in this a boast that they were ninja of Kirigakure, an unconscious arrogance that fishermen like them couldn't do anything about it.</br>
+"Hey! You're going to hit us!" she called out a warning, but the boat didn't show any signs of stopping. "Hey!" The watch ninja leaned over from the ship, grabbed her forehead protector with the Kirigakure crest on it, and held it up. Perhaps there came through in this a boast that they were ninja of Kirigakure, an unconscious arrogance that fishermen like them couldn't do anything about it.</br>
 One of the people in the boat stood up. Woven hat deep over their eyes. Fingers grasping the edge, slowly lifting it. The hidden chin, the mouth, the nose were revealed, and then...</br>
 The instant she saw the eyes, the watch ninja fell down.</br>
 "H-hey! What's wrong?!" The eyes of the other ninja on deck grew wide at their comrade suddenly dropping to the deck after calling out a waring to the small boat ahead of them. But before any of them could race over to her side, they sensed an abnormal aura.</br>
@@ -86,13 +86,13 @@ As the ship approached, the wind and rain grew more intense. Almost as if bringi
 "Welcome to the Land of Lightning!" the Kumogakure representative called out, as the ship reached the shore.</br>
 There was no response from inside. Thinking this suspicious, the Kumogakure ninja looked at each other.</br>
 "Welcome!" she shouted again, her voice tense.</br>
-Finally, someone appeared from within ship. A ninja wearing a woven hat. This ninja glanced down at the representative who had called out to welcome the ship.</br>
+Finally, someone appeared from within the ship. A ninja wearing a woven hat. This ninja glanced down at the representative who had called out to welcome the ship.</br>
 "...Oh..." The representative swayed, and then collapsed on the rain-slick port.</br>
 "Wh-what's wrong?!".</br>
 The Kumogakure ninja were bewildered by this sudden event.</br>
 The ninja in the hat jumped down from the ship and tossed the hat away, revealing what had been hidden beneath it.</br>
 "Th-those eyes?!"</br>
-Crimson eyes glowing eerily in the rain. Not one of the Kumogakure ninja escaped being caught in their glaze.</br>
+Crimson eyes glowing eerily in the rain. Not one of the Kumogakure ninja escaped being caught in their gaze.</br>
 "Crap, ocular jutsu..."</br>
 Merely upon seeing that red glow, the ninja of Kumogakure lost all their strength and fell to the ground.</br>
 "That was wonderful". Red Eyes' comrades leaped down from the ship after watching the scene play out.</br>
@@ -110,7 +110,7 @@ I will nor allow this peace.
 The woods were thick. Ivy twined around fat trunks, down to the roots of mossy trees, erasing the border between tree and earth. This particular tree that stretched its branches to the heavens, seeking the light of the sun, was hundreds of years old. But beyond it were young buds not yet grown.</br>
 Someone was looking down on it all. The left eye that barely peeked out from the hair hanging across his face was the supreme Rinnegan. At first glance, the right looked to be a normal eye, but it housed the Sharingan, the kekkei genkai of the Uchiha clan. The man's name was Uchiha Sasuke.</br>
 At the top of the massive tree, Sasuke looked out at the view in all directions. He had made it through the Fourth Great Ninja War and come back a shinobi of Konoha once more.
-However, rather than saying in the village, he had set out on a journey.</br>
+However, rather than staying in the village, he had set out on a journey.</br>
 I want to know how this ninja world —how the world looks to me now.</br>
 He had been traveling for several years, and had seen things he probably wouldn't have noticed when he was steeped in darkness. There had also been times when he looked back gently on the past he had tried to break free of. There were moments when he remembered his friends. He saw with his own eyes the scars of the war; he touched on people's sadness, and felt the futility of revenge.</br>
 In the past, Sasuke had endured the pain and suffering of having his family and his clan taken from him with the powerful medicine of revenge. But in the depth of that darkness, he had become confused about what path to go down. He had lost sight of what was important. It had taken a very long time to be able to understand and accept that, but Sasuke truly felt it now.</br>
@@ -120,20 +120,20 @@ Otsutsuki Kaguya.</br>
 The woman who had taken in her mouth the fruit of the Divine Tree —said to be forbidden— gained chakra, and brought calm to a turbulent world. But she had been consumed by the immense power, and after a time when she ran wild, her own children, Hamura and Hagoromo, had sealed her away.</br>
 The very Kaguya had come back to this world, and Sasuke had, along with this comrades in Team 7 and Uchiha Obito, sealed her away once more. Once the threat that had rocked the world had passed, people rejoiced, but something about it bothered Sasuke.</br>
 Through Black Zetsu's secret maneuvering to bring her back, Kaguya has linked the people she cast Infinite Tsukiyomi on to the roots of the Divine Tree, transforming them over many years into her personal soldiers. The end result was the army of White Zetsu.</br>
-Formerly known as the Rabbit Goddess, Kaguya changed somehow after she had freed the world from conflict, so the people connected to the Divine Tree also came after the peace she brought about. Why, in a world where fighting was supposed to have ended, was there a need to use the Infinite Tsukiyomi on people and turn them into soldiers? To play cruelly with those who had power, to control human being with fear; a number of reasons came to mind, but Sasuke could see no clear answer.</br>
+Formerly known as the Rabbit Goddess, Kaguya changed somehow after she had freed the world from conflict, so the people connected to the Divine Tree also came after the peace she brought about. Why, in a world where fighting was supposed to have ended, was there a need to use the Infinite Tsukiyomi on people and turn them into soldiers? To play cruelly with those who had power, to control human beings with fear; a number of reasons came to mind, but Sasuke could see no clear answer.</br>
 He was chasing after the traces Kaguya had left behind to clear away his doubts, but his opponent was the progenitor of chakra. Sasuke might have had the Rinnegan, but picking up her trail was no easy feat.</br>
 "Mm?" Sensing an aura, he looked toward the southwest.
-When he squinted, he could see something flying in his direction. At first glance, it was a small bird flapping its wings, but circulating in that bird was not blood, but ink and text brought o life by chakra.</br>
+When he squinted, he could see something flying in his direction. At first glance, it was a small bird flapping its wings, but circulating in that bird was not blood, but ink and text brought to life by chakra.</br>
 Sasuke quickly pulled out a scroll, and the bird flew toward it as if called. Konoha ninja Sai's Art of Cartoon Beast Mimicry.
 The figure of the bird disappeared, and in its place, text spread out on the open scroll.</br>
 Thinking that he needed to have a more diverse view of the world in order to know Kaguya, Sasuke had recently deliberately begun communicating with Konoha more often, asking them to send him information on the state of the village and of the world.</br>
 He turned his gaze to the words on the page, thinking it was one of those missives, but his brow furrowed at the content.
 "This..."</br>
 It was a message from the current Hokage, Hatake Kakashi.
-Apparently, a large number of ninja from Kirigakure and Kumogakure has suddenly disappeared. There was no sign of a fight, and information was limited, so the Hokage was asking him to contact Konoha if he found anything suspicious that might have been related to the incident.</br>
+Apparently, a large number of ninja from Kirigakure and Kumogakure had suddenly disappeared. There was no sign of a fight, and information was limited, so the Hokage was asking him to contact Konoha if he found anything suspicious that might have been related to the incident.</br>
 "More than a hundred ninja suddenly vanish?"</br>
 If a person was behind it, it was posible that they were a genjutsu user. In which case, it would be best for Sasuke, with his superior ocular jutsu, to respond. If he used the Sharingan, he might be able to see what other ninja couldn't.</br>
-At the top of the tree he had climbed to check his direction, Sasuke looked around once more with those eyes. Several clouds of white smoke piffed up info the air beyond the forest he was perched in. Not from fires, though. It was steam. He was that close to Yugakure, a village where hot springs welled up out of the earth, often used as a hot-spring resort. It was in the Land of Steam, which was not far from the Land of Linghtning, and ships always departed from there to the Land of Water.</br>
+At the top of the tree he had climbed to check his direction, Sasuke looked around once more with those eyes. Several clouds of white smoke puffed up info the air beyond the forest he was perched in. Not from fires, though. It was steam. He was that close to Yugakure, a village where hot springs welled up out of the earth, often used as a hot-spring resort. It was in the Land of Steam, which was not far from the Land of Linghtning, and ships always departed from there to the Land of Water.</br>
 "Maybe I'll head for the Land of Lightning, then". Given that he could reach it via a land route, Sasuke first set his sights on the Land of Lightning, and dropped back down into the forest.
 
 </br>
@@ -150,7 +150,7 @@ Abruptly, a small settlement came into his field of view. It was the sort of cou
 There was not a single light in the village.</br>
 Although the sun had set, it was too early for everyone to have gone to sleep. And he had also just heard about the disappearance of a large number of ninja.</br>
 Sasuke closed his eyes for a moment and focused his power in his right eye. When he opened his eyelids, the eye was dyed red, three 'tomoe' marks visible in it. Saringan.</br>
-He looked at the village with that eye. There were indeed people inside the houses, which made ample use of the surrounding bamboo in their construction. But all of them were sill like they were holding their breath. Almost as though they were afraid of something.</br>
+He looked at the village with that eye. There were indeed people inside the houses, which made ample use of the surrounding bamboo in their construction. But all of them were still like they were holding their breath. Almost as though they were afraid of something.</br>
 His curiosity piqued, Sasuke took a step toward the village.</br>
 "So you show yourself! You fallen Dark Thundeeeeerrrr!"
 Someone leapt out with a great deal of force from beneath the bamboo leaves.</br>
@@ -160,11 +160,11 @@ Sasuke jumped backward and lightly dodged. But in the spot where he landed, he f
 Sasuke wove signs, took a breath, and brought a finger to his mouth. "Fire Style: Great Fireball Technique!"</br>
 Fire Style was the specialty of the Uchihas. The flames he released enveloped the water pellets of his opponent, evaporating them instantly.</br>
 "What?! Water Style can be done in by Fire Style?!" his opponent shouted, upon seeing her own technique disappear without ever touching Sasuke. He looked over and saw a short girl with a childish face standing there.</br>
-"Chino, get back!" Now a brawny man appeard, as if to push the girl "Chino" back. Kunai at the ready, he tossed it at Sasuke, the tip aiming straight at his heart.</br>
+"Chino, get back!" Now a brawny man appeared, as if to push the girl "Chino" back. Kunai at the ready, he tossed it at Sasuke, the tip aiming straight at his heart.</br>
 It stabbed into the bamboo behind him. Rrrrrip! The oversized grass exploded backward.</br>
 "Wind's changing nature hm?" Sasuke noted. The kunai, cloaked in wind chakra, had expanded the air inside the node of the bamboo and ruptured it.</br>
-"Hey! You youngsters, what are  you at?! Hurry up and take him down!" the old man shouted.</br>
-"Whaaaat?! No one told me he was this strong!" Chino frowned and stared at Sasuke. And then she gasped and pointed at his eye. "No! no way! Look, Nowaki! That eye... the Saringan!"</br>
+"Hey! You youngsters, what are you at?! Hurry up and take him down!" the old man shouted.</br>
+"Whaaaat?! No one told me he was this strong!" Chino frowned and stared at Sasuke. And then she gasped and pointed at his eye. "No! No way! Look, Nowaki! That eye... the Saringan!"</br>
 A surprised look rose up on the face of the large man, who was apparently Nowaki. "Is that real?"</br>
 You listen, you spineless brats! You're gonna be like that, then I'll do it! Dark Thunder, I'll get vengeance for my daughterr!" Clutching his bamboo lance, the old man charged once more.</br>
 Sasuke didn't have a chance to even ask what was going on; in any case, he had no choice. "Hah!" He pushed out a hard breath, and took his sword in hand.</br>
@@ -172,7 +172,7 @@ Sasuke didn't have a chance to even ask what was going on; in any case, he had n
 Sasuke easily cut the end of it off. With incredible speed, he then sliced the lance into thin rounds up to the old man's hand, before bringing the tip of his sword up against the old ma's windpipe. Sasuke pressed the blade against his throat as if to make him keenly aware of the cold sensation of the sword.</br>
 "Ee, eeep". The bamboo, chopped down to a single joint, fell from the old man's hand. Droplets of sweat popped up on his dry skin and fell to the ground.</br>
 "Ah, ah w-wait, brother! Boss! Handsome! Manly! Don't kill the old man!" Panicked, Chino came at Sasuke as if to calm him.</br>
-Not responding to this, Sasuke said to the old man, "You've got the worng idea".</br>
+Not responding to this, Sasuke said to the old man, "You've got the wrong idea".</br>
 "Hah, hah..."</br>
 "I don't know this Dark Thunder".</br>
 "Eee, eee..." Sasuke's words didn't seem to make it into the old man's ears; he kept breathing sallowly, trembling with fear.
@@ -182,7 +182,7 @@ Sasuke moved the blade of his sword the tinest bit away from the old man's throa
 "That's the first time I've heard the name". Sasuke lowered his sword, and the old man crumpled to his knees on the spot.</br>
 Meanwhile, Chino and Nowaki looked at each other.</br>
 "Iou! He says it's a mistake!" Chino shouted.</br>
-But the old man Iou's moaned, "Shut up! This isn't the time for that! My heart, ah! My heart huuuurts!" Released from the terror of death, Iou's body responded with intense heart palpitations. He pressed a hand to his chets, and desperately sucked in air.</br>
+But the old man Iou's moaned, "Shut up! This isn't the time for that! My heart, ah! My heart huuuurts!" Released from the terror of death, Iou's body responded with intense heart palpitations. He pressed a hand to his chest, and desperately sucked in air.</br>
 "Sorry. That was a terrible mistake for us to have made".
 Unlike Iou, Nowaki seemed sincerly apologetic.</br>
 "Although I feel like we would have been the ones to be killed if the fighting continuaded, I am sorry", Chino added, clapping both hands together in a gesture of contrition. "C'mon, Iou!".
