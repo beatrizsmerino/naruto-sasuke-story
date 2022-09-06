@@ -296,7 +296,7 @@ Without the slightest compunction.</br>
 "You too, Sakura?"</br>
 "I was looking something up with Shizune".</br>
 So when Sai and Naruto asked Shizune for a meeting with the Hokage, they had noticed Sakura there and invited her along, then.</br>
-"Anyway. How about I her your report, Sai?"</br>
+"Anyway. How about I hear your report, Sai?"</br>
 "Right. My messenger safely reached Sasuke the other day".</br>
 "The Cartoon Beast bird flew off to the northeast, hm? In which case, judging from the number of days, he's around Yugakure or Shimogakure, maybe?"</br>
 Hearing this, Sakura let out a sigh of relief. Sasuke was still alive somewhere. She felt easier, just knowing that.</br>
@@ -306,13 +306,13 @@ Hearing this, Sakura let out a sigh of relief. Sasuke was still alive somewhere.
 Sakura nodded and stepped forward. "It seems that we're seeing ninja missing from Konoha, as well".</br>
 "What?" Kakashi started to rise from his seated posture.</br>
 "It's not on the same large scale as in Kirigakure or Kumogakure, but there were several cases about three months ago. There might also be others that just weren't made public".</br>
-Even now, they had many dangerous missions, and sometimes, ninja did go missing. And because they had more frequent contact that before with other regions, there were more people coming and going. So this wasn't a special, rare ocurrence —but something bothered Kakashi about it, too.</br>
+Even now, they had many dangerous missions, and sometimes, ninja did go missing. And because they had more frequent contact than before with other regions, there were more people coming and going. So this wasn't a special, rare ocurrence —but something bothered Kakashi about it, too.</br>
 "Why were you looking into something like that, Sakura?"
 Sakura was very busy as a medical ninja, and the fact that she was looking into something of this nature was a little unexpected. At his question, her gaze froze slightly.</br>
 "A regular at Ino's family's shop went on a trip and disappeared. Ino said he wasn't the sort of person of suddenly vaninsh, and when I heard about this case, I immediately remembered him".</br>
 Yamanaka Ino was a female ninja, Sakura's rival and best friend. Her family ran a flower shop, where Ino also worked from time to time. The sight of Ino worried about a regular customer had probably stuck in Sakura's mind.</br>
 "I thought I'd tell you once I learned more details".</br>
-Given that this was Sakura, there was no doubt she had been planning on telling him once she had looked into the enough to be sure.</br>
+Given that this was Sakura, there was no doubt she had been planning on telling him once she had looked into it enough to be sure.</br>
 "Oh, thanks. I'll keep an eye on it too".</br>
 Although the person on top was thought to have all the information, he actually did't. For better or for worse, people sifted through information, deciding what was and wasn't worth telling the Hokage, so a lot of information never reached his ears. Which was why it was vital for him to hear the opinions of people he knew like this.</br>
 Good thing Sakura's story got to me at the right time, Kakashi thought as he turned his gaze to Naruto, who had brought Sakura in to begin with. It was at that moment...</br>
@@ -329,9 +329,9 @@ Boom! They heard a sound like an explosion from somewhere. Kakashi and the other
 Sai swiftly opened up a scroll hanging at his hip and sent his brush racing across it. The ink drew out a large bird with its wings spread. "Ninjutsu! Art of Cartoon Beast Mimicry!"</br>
 The bird flew up from the scroll as if being born and spread its large wings outside the window. Flapping them, the bird first allowed Sai to leap on; then, Naruto and Sakura followed suit.</br>
 "Do it", Kakashi said, tersely.</br>
-Naruto nodded, and the three flew of in the direction of the flames licking up into the air.</br>
+Naruto nodded, and the three flew off in the direction of the flames licking up into the air.</br>
 "Sixth, I'll go give the order for firefighting activities!"</br>
-Shizune said, and Kakashi nodded in he direction before giving the order to gather information in all areas. He glanced at the letters from Kirigakure and Kumogakure laying on his desk.</br>
+Shizune said, and Kakashi nodded in her direction before giving the order to gather information in all areas. He glanced at the letters from Kirigakure and Kumogakure laying on his desk.</br>
 "What exactly is going on here...?"
 
 </br>
@@ -352,7 +352,7 @@ The three jumped up onto the enormous bird, and although the bird staggered and 
 Naruto and the others looked once more at the three new arrivals. Shikamaru, Ino and Choji were childhood friends, and they had previously joined together in a three-person cell under Sarutobi Asuma. However, now they each had their own positions, and didn't often work as a team anymore.</br>
 "Ino and her mother asked us to, so we've been chasing after traces of the regular customer from the flower shop", Shikamaru explained, reminding Naruto of Sakura's investigation and what she had reported to Kakashi.</br>
 "You find any clues?" he asked.</br>
-"We found the inn that was probably the last place he stayed", Shikamaru replied. "The mistress there there said he was on his way back to Konoha after a hot-spring treatment".</br>
+"We found the inn that was probably the last place he stayed", Shikamaru replied. "The mistress there said he was on his way back to Konoha after a hot-spring treatment".</br>
 That meant that this customer hadn't planned to disappear.</br>
 "So then something happened on his way home", Naruto remarked.</br>
 Ino nooded firmly. "He—his name's Tadaichi, by the way. He lost his wife young. He's the sort of person who'd buy flowers at our shop and offer them to his wife whenever he had the time.
@@ -428,7 +428,7 @@ After wrestling with Choji's wind, the shock wave was bounced back beyond the vi
 "Hah, hah...Did that. Do. The trick?" Choji released his jutsu, breathing hard.</br>
 Part of the wall enclosing Konoha was destroyed, but there appeared to be no damage to the village. The flames rising up inside the village had also been blown out.</br>
 Shikamaru patted Choji's shoulder. "Nice work".</br>
-Sakura raced over to the broken wall, but her shoulders dropped with regret. The bodies had been turned into hunks of flesh beyond repair. Ino also bit hr lip.</br>
+Sakura raced over to the broken wall, but her shoulders dropped with regret. The bodies had been turned into hunks of flesh beyond repair. Ino also bit her lip.</br>
 "At any rate, we gotta report to the Hokage. Sai, sorry, can you take us with your Cartoon Mimicry?" Shikamaru quickly gave instructions. Naruto also moved to follow Shikamaru.</br>
 "Naruto!"</br>
 Just as Sai pulled our his brush, they heard someone suddenly call out Naruto's name. They looked in that direction and saw a man with wide-framed sunglasses and spiky black hair swept up and back running over to the scene.</br>
@@ -436,7 +436,7 @@ Just as Sai pulled our his brush, they heard someone suddenly call out Naruto's 
 "Yamashiro Aoba!"</br>
 "Yamashiro Aoba?"</br>
 "We went to Turtle Island in Kumogakure together!"</br>
-"Ohh! Yeah, right! Huh? What? You going to Turtle island again?"</br>
+"Ohh! Yeah, right! Huh? What? You going to Turtle Island again?"</br>
 "Not that! I'm a messenger from the Hokage!" Aoba shouted out the main point, sensing a danger that the conversation would continue to go in this strange circle.</br>
 "From Master Kakashi? What's he say?"</br>
 "Earlier, intruders were detected by the barrier. They number thirty".</br>
