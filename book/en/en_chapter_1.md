@@ -16,10 +16,10 @@ The surf pounded against the port. A ship large enough to carry a hundred people
 Some people has kicked up a fuss when the decision was made to train together with another village, but still the feeling of friendship was actually quite strong. The fact that they had exchanges like this with other lands was due in large part to Uzumaki Naruto and the many incredible things he had accomplished during the Fourth Great Ninja War. His hope was that ninja would come together to create a world without war.</br>
 "These sorts of experiences will also be good for the future of Kirigakure", the Mizukage remarked to the squad leader in charge of the joint training group.</br>
 "Yes, ma'am! We will be bold. Made for this mission, we will build a basis for friendship with other nations!" The squad leader responded sincerely to this hope of the Mizukage.</br>
-But she reacted with a gasp. Old maid?!</br>
+But she reacted with a gasp. <em>Old maid?!</em></br>
 Utterly ignorant of the Mizukage's state of upset, Chojuro said to the squad leader, "The Lord Raikage is hard on both self and others at times. But he is a firm and brave man. He gives his all to everything he does. Also, this time of year, powerful typhoons often from around the islands neighboring the Land of Water, so please do not act rashly. Keep an eye out for them".</br>
 "Ha ha! So now you worry about other people now, hm, Chojuro? Better off herding cats".</br>
-Old maid, hard on both self and other at times... Trash her?!</br>
+<em>Old maid, hard on both self and other at times... Trash her?!</em></br>
 As Chojuro and the others chatted cheerfully, the look on the Mizukage's face grew grim, and an ominous aura rose up around her.</br>
 Noticing her silence, Chojuro cocked his head curiously to one side and looked at her. "Lady Mizukage, is something the matter?".</br>
 She exhaled a long breath and collected her scattered nerves.
@@ -102,7 +102,7 @@ While the others hauled the Kumogakure shinobi up, Red Eyes picked up the woven 
 "We got them all!" one ninja shouted, and Red Eyes leapt up back onto the ship.</br>
 A bolt of lightning raced across a sky rumbling with thunder.</br>
 "We'll dye it all red".</br>
-I will nor allow this peace.
+<em>I will nor allow this peace.</em>
 </details>
 
 <details>
@@ -111,12 +111,12 @@ The woods were thick. Ivy twined around fat trunks, down to the roots of mossy t
 Someone was looking down on it all. The left eye that barely peeked out from the hair hanging across his face was the supreme Rinnegan. At first glance, the right looked to be a normal eye, but it housed the Sharingan, the kekkei genkai of the Uchiha clan. The man's name was Uchiha Sasuke.</br>
 At the top of the massive tree, Sasuke looked out at the view in all directions. He had made it through the Fourth Great Ninja War and come back a shinobi of Konoha once more.
 However, rather than staying in the village, he had set out on a journey.</br>
-I want to know how this ninja world —how the world looks to me now.</br>
+<em>I want to know how this ninja world —how the world looks to me now.</em></br>
 He had been traveling for several years, and had seen things he probably wouldn't have noticed when he was steeped in darkness. There had also been times when he looked back gently on the past he had tried to break free of. There were moments when he remembered his friends. He saw with his own eyes the scars of the war; he touched on people's sadness, and felt the futility of revenge.</br>
 In the past, Sasuke had endured the pain and suffering of having his family and his clan taken from him with the powerful medicine of revenge. But in the depth of that darkness, he had become confused about what path to go down. He had lost sight of what was important. It had taken a very long time to be able to understand and accept that, but Sasuke truly felt it now.</br>
 He felt the changes in the world as well. The five Kage had moved to make major wars disappear, and maintain peace and order. Once, the power of the ninja was used to protect their own countries, and to invade and attack other nations. Now, it was being made use of to develop equipment that did not require chakra to instantly transmit information, to maintain medical facilities, to actively communicate with other nations, and to enhance distribution systems, among other things. The world was stepping into a new age of growth.</br>
 Which was exactly why he could not overlook one particular issue.</br>
-Otsutsuki Kaguya.</br>
+<em>Otsutsuki Kaguya.</em></br>
 The woman who had taken in her mouth the fruit of the Divine Tree —said to be forbidden— gained chakra, and brought calm to a turbulent world. But she had been consumed by the immense power, and after a time when she ran wild, her own children, Hamura and Hagoromo, had sealed her away.</br>
 The very Kaguya had come back to this world, and Sasuke had, along with this comrades in Team 7 and Uchiha Obito, sealed her away once more. Once the threat that had rocked the world had passed, people rejoiced, but something about it bothered Sasuke.</br>
 Through Black Zetsu's secret maneuvering to bring her back, Kaguya has linked the people she cast Infinite Tsukiyomi on to the roots of the Divine Tree, transforming them over many years into her personal soldiers. The end result was the army of White Zetsu.</br>
@@ -157,11 +157,11 @@ Someone leapt out with a great deal of force from beneath the bamboo leaves.</br
 Sasuke looked in that direction to find a balding old man, all skin and bones, charging at him, bamboo spear in hand. His movements were not quick, and he wasn't strong; he seemed to be a normal person with no connection with the ninja arts.</br>
 Sasuke jumped backward and lightly dodged. But in the spot where he landed, he felt chakra behind him.</br>
 "Water Release: Rain Barrage!" The high-pitched voice of a young girl rang out, and countless tiny pellets of water like the icing sugar on a sweet cake flew at him.</br>
-Sasuke wove signs, took a breath, and brought a finger to his mouth. "Fire Style: Great Fireball Technique!"</br>
+Sasuke wove signs, took a breath, and brought a finger to his mouth. <em>Fire Style: Great Fireball Technique!</em></br>
 Fire Style was the specialty of the Uchihas. The flames he released enveloped the water pellets of his opponent, evaporating them instantly.</br>
 "What?! Water Style can be done in by Fire Style?!" his opponent shouted, upon seeing her own technique disappear without ever touching Sasuke. He looked over and saw a short girl with a childish face standing there.</br>
 "Chino, get back!" Now a brawny man appeared, as if to push the girl "Chino" back. Kunai at the ready, he tossed it at Sasuke, the tip aiming straight at his heart.</br>
-It stabbed into the bamboo behind him. Rrrrrip! The oversized grass exploded backward.</br>
+It stabbed into the bamboo behind him. <em>Rrrrrip!</em> The oversized grass exploded backward.</br>
 "Wind's changing nature hm?" Sasuke noted. The kunai, cloaked in wind chakra, had expanded the air inside the node of the bamboo and ruptured it.</br>
 "Hey! You youngsters, what are you at?! Hurry up and take him down!" the old man shouted.</br>
 "Whaaaat?! No one told me he was this strong!" Chino frowned and stared at Sasuke. And then she gasped and pointed at his eye. "No! No way! Look, Nowaki! That eye... the Saringan!"</br>
@@ -263,7 +263,7 @@ Inside a ruined house, the man sitting on the table and tossing a ball at the wa
 "Yes sir! Not long after the sun had set, when we went to scout out Takeno, there was a man using the Sharingan! Lord Karyu, it was most likely Uchiha Sasuke!".</br>
 The ball hit the wall and bounced off the blood-soaked floor next to a corpse, and then returned to the man's —to Karyu's— hand.</br>
 "Uchiha Sasuke. The sole survivor of the proud Uchiha clan. So he's in Takeno..." Karyu chuckled softly and jumped down from the table before throwing the ball up against the wall once more.</br>
-Thuk! There was a loud explosion, and the subordinate involuntarily plugged his ears and closed his eyes. When he opened them again, there was a large hole in the wall, and Karyu had stepped through it and gone outside.</br>
+<em>Thuk!</em> There was a loud explosion, and the subordinate involuntarily plugged his ears and closed his eyes. When he opened them again, there was a large hole in the wall, and Karyu had stepped through it and gone outside.</br>
 Looking up at the moon hidden among the clouds, Karyu stretched out his hands. "My heart's teacher, the man who showed the world the wonder of kekkei genkai, Uchiha Sasuke... that I would get the chance to kill him!" A look of delight came across his face, and he shouted to his subordinates on standby, "All of you, get to work! Just the right time for Takeno... smash it all to pieces!"
 </details>
 
@@ -315,7 +315,7 @@ Yamanaka Ino was a female ninja, Sakura's rival and best friend. Her family ran 
 Given that this was Sakura, there was no doubt she had been planning on telling him once she had looked into it enough to be sure.</br>
 "Oh, thanks. I'll keep an eye on it too".</br>
 Although the person on top was thought to have all the information, he actually did't. For better or for worse, people sifted through information, deciding what was and wasn't worth telling the Hokage, so a lot of information never reached his ears. Which was why it was vital for him to hear the opinions of people he knew like this.</br>
-Good thing Sakura's story got to me at the right time, Kakashi thought as he turned his gaze to Naruto, who had brought Sakura in to begin with. It was at that moment...</br>
+<em>Good thing Sakura's story got to me at the right time</em>, Kakashi thought as he turned his gaze to Naruto, who had brought Sakura in to begin with. It was at that moment...</br>
 "Sixth! There's an invader in the village!" A ninja from the barrier team appeared suddenly in the Hokage's office. Tension ran through the room.</br>
 "Did they touch the barrier?"</br>
 A spherical barrier had been set up around the village of Konohagakure, from the ground up into the sky. After the attack by Akatsuki, they had put up an even more powerful barrier.</br>
@@ -323,7 +323,7 @@ A spherical barrier had been set up around the village of Konohagakure, from the
 "What?!"</br>
 "The ninja of the barrier team are currently on their wa—"
 The end of the word didn't make it out.</br>
-Boom! They heard a sound like an explosion from somewhere. Kakashi and the others opened the windows of his office and looked outside.</br>
+<em>Boom!</em> They heard a sound like an explosion from somewhere. Kakashi and the others opened the windows of his office and looked outside.</br>
 "Master Kakashi, flames..." A fire had broken out in the direction Sakura was pointing, near the A-un gates, perhaps an effect of the explosion.</br>
 "Master Kakashi! We'll go to check it out right now!" Naruto said.</br>
 Sai swiftly opened up a scroll hanging at his hip and sent his brush racing across it. The ink drew out a large bird with its wings spread. "Ninjutsu! Art of Cartoon Beast Mimicry!"</br>
@@ -391,14 +391,14 @@ Someone on the barrier team had likely realized that the enemy warriors were Kon
 They felt a wave of pressure, like something swelling up and coming toward them.</br>
 Injured by the barrier team's attack, Tadaichi fell to the ground, and his body began shaking.</br>
 "Ah! This is bad!" Naruto immediately leapt off the bird.</br>
-Shadow Clones! As he wove the signs in midair, his shadow clones landed next to the various members of the barrier team.</br>
+<em>Shadow Clones!</em> As he wove the signs in midair, his shadow clones landed next to the various members of the barrier team.</br>
 "Naruto?!"</br>
 "We're flying!" Without giving them a chance to say anything, Naruto lifted up the ninja of the barrier team, and all departed from the place at the same time.</br>
 When he looked back, Tadaichi was slowly getting to his feet. Despite the fact that he was injured, his face was still expressionless. The blood spilling out of his wounds frothed and bubbled. And that wasn't all. Lumps popped up all over his body, almost as if there were another living creature inside him, crawling around.</br>
 "We gotta get further back!" Naruto got more distance from Tadaichi before putting the barrier ninja down in what was probably a safe place, and then starting to run back to Tadaichi to try and help him.</br>
 But the lumps seething through Tadaichi's body swelled and grew larger, and his skin, unable to contain the growth, split.
 And then—</br>
-Boom!! He exploded violently like he was bursting open. The houses closest to him were unable to hold up against the impact of the explosion and were destroyed. Fortunately, Naruto's shadow clones had gone to check on and bring out the people in the buildings nearby, so there was no human damage, but new flames rose up into the sky.</br>
+<em>Boom!!</em> He exploded violently like he was bursting open. The houses closest to him were unable to hold up against the impact of the explosion and were destroyed. Fortunately, Naruto's shadow clones had gone to check on and bring out the people in the buildings nearby, so there was no human damage, but new flames rose up into the sky.</br>
 "Are you okay, Naruto?!" Sakura cried, as Sai's Cartoon Mimicry bird landed and they all raced over to Naruto's side.</br>
 "Tadaichi..." Ino stared dumbfounded at the scene, bits of flesh flung everywhere. Sakura placed a concerned hand on her back. "I'm okay". She pulled herself together, and immediately ran over to the injured members of the barrier team with Sakura.</br>
 However, the threat had not ended.</br>
@@ -417,11 +417,11 @@ Six, five, four—</br>
 "Choji, now! Flap those wings with everything you've got!"</br>
 "Aaah!" Having quickly grasped Shikamaru's intention, Choji braced himself and flapped the massive, chakra-made butterfly wings. He sent all of his own chakra out on the wind they created.</br>
 Three, two, one—</br>
-Booom! The noise of the explosion. And again and again. A series of these, and the bodies clinging to the wall were ripped apart all at once.</br>
+<em>Booom!</em> The noise of the explosion. And again and again. A series of these, and the bodies clinging to the wall were ripped apart all at once.</br>
 Shikamaru checked the front, and then yelled, "Here it comes!"</br>
 When the shock wave came toward the village of Konoha, it collided with the wind radiating outward from Choji's massive body. The wind hit the shock wave, and the two fought.</br>
 "I got your back!!" Naruto shouted. "Here we go, Kurama!"</br>
-Right!</br>
+<em>Right!</em></br>
 To reinforce Choji's wind, Naruto called up the nine-tailed Kurama, once a source of hatred, now his partner. Power raced through his body, generating a Wind Release: Ransengan that he sent flying toward the shock wave. This new wind pushed back the shock wave to protect the village.</br>
 "All right. Nice!"</br>
 After wrestling with Choji's wind, the shock wave was bounced back beyond the village with the added force of Naruto's Wind Release: Ransengan. The trees of the forest just outside the gates were whipped around by the combination of wind and shock wave and flattened.</br>
@@ -502,7 +502,7 @@ A new voice rang out. He turned around and saw a woman running toward him, long 
 Born into the main family of the Hyuga clan, Hinata was the possessor of the Byakugan. She had a wide field of vision and the ability to see through things, among others.</br>
 "Hinata, it seems like everyone's under a genjutsu. Is there someone controlling them somewhere?"</br>
 "Understood. I'll look. "Hinata —now also Naruto's wife— focused her power in her eyes. The blood vessels popped up one after another and then her eyes opened.</br>
-Byakugan!</br>
+<em>Byakugan!</em></br>
 She examined the area with the visual power to see through everything. She stretched her mind out into the woods and the surrounding buildings, not letting a single thing get away from her.</br>
 "So?"</br>
 "It seems like there's no one".</br>
@@ -527,7 +527,7 @@ In that instant, the Narutos ran off in all directions like baby spiders.</br>
 "I'm here! Come on! See!"</br>
 He was deliberately provoking them. It wasn't clear whether it worked or not, but the ninja scattered and began to chase after Naruto's clones. He opened up the distance between the enemies.</br>
 "Okay. Here we go!" Shikamaru turned his eyes on one of the mind-controlled ninja who was far enough out that there wouldn't likely be other damage whatever happened, brought his hands together, and wove signs.</br>
-Shadow Possession!</br>
+<em>Shadow Possession!</em></br>
 His shadow, lit up by the gentle light of the moon, stretched out toward his opponent.</br>
 "Okay!" His shadow connected with his opponent's, and the man suddenly stopped on the spot. Shikamaru spread his legs slightly and dropped his arms to his sides, and his opponent did the same thing. "Hinata!"</br>
 "Yes!" With the Byakugan, Hinata looked at the man's pressure points. The one she was aimaing for was a quick cut-off pressure point. She stretched out an index finger. She absolutely could not miss. She imagined the movements of Hyuga Neji, the greatest genius since the start of the Hyuga clan.</br>
@@ -553,7 +553,7 @@ Normally, Aoba would be able to see into his opponent’s brain like this. "Ngh!
 "Hey, Sakura, doesn't he seem kinda weird?" Naruto asked, sensing a turbulent aura as he watched over Aoba. Aoba's mouth was half open and he swayed back and forth, as if rocked by waves.</br>
 "There was a genjutsu trap in his mind!" Sakura shouted.</br>
 "That's bad, isn't it?!" Ino's face stiffened, but she quickly brought her fingertips together as if she had resolved herself, and set her sights on Aoba.</br>
-Mind Transmission Jutsu!</br>
+<em>Mind Transmission Jutsu!</em></br>
 The secret Mind Transmission technique of the Yamanaka clan. Ino entered Aoba’s consciousness, and her body slumped over. Reacting instantly, Shikamaru held her up with his Shadow Possession.</br>
 "Are you okay, Ino?!" Sakura's eyes shot back and forth between Ino and Aoba.</br>
 The contest was an instant, but for Ino and Aoba, it must have been much longer.</br>
