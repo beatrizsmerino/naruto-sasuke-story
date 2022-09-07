@@ -295,7 +295,7 @@ Sin el menor reparo.</br>
 "¿Tú también, Sakura?"</br>
 "Estaba buscando algo con Shizune".</br>
 Así que cuando Sai y Naruto le pidieron a Shizune una reunión con el Hokage, se habían fijado en Sakura y la invitaron, entonces.</br>
-"En fin. ¿Qué tal si le doy tu informe, Sai?"</br>
+"En fin. ¿Qué tal si escucho tu informe, Sai?"</br>
 "Bien. Mi mensajero llegó a salvo a Sasuke el otro día".</br>
 "El pájaro de la Bestia de los Dibujos animados voló hacia el noreste, ¿hm? En cuyo caso, a juzgar por el número de días, está cerca de Yugakure o Shimogakure, ¿quizás?"</br>
 Al oír esto, Sakura dejó escapar un suspiro de alivio. Sasuke seguía vivo en alguna parte. Se sintió más tranquila, sólo con saber eso.</br>
