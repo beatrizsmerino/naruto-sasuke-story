@@ -69,7 +69,7 @@ Jóvenes ninjas con un futuro prometedor, veteranos shinobi que habían vivido l
 </br>
 
 "Llegan tarde".</br>
-Los ninjas de Kumogakure refunfuñaron, esperando bajo la llovizna para recibir a los ninjas de Kirigakure en el puerto del País de la Luz. La hora de llegada prevista había pasado hace tiempo, y no había llegado ningún mensaje que dijera que el barco llegaría tarde.</br>
+Los ninjas de Kumogakure refunfuñaron, esperando bajo la llovizna para recibir a los ninjas de Kirigakure en el puerto del País del Rayo. La hora de llegada prevista había pasado hace tiempo, y no había llegado ningún mensaje que dijera que el barco llegaría tarde.</br>
 "El Lord Raikage va a perder la cabeza si se retrasan demasiado".</br>
 Su directo y corto Raikage. Si lo hacían esperar demasiado, estallaría en cólera; bien podría hacer caer el rayo de su nombre sobre ellos.</br>
 "Tal vez el clima no esté funcionando con ellos. Al fin y al cabo, no hay ningún lugar en el océano donde resguardarse de la lluvia".</br>
