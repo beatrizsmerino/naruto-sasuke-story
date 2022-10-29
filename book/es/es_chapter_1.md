@@ -69,7 +69,7 @@ Jóvenes ninjas con un futuro prometedor, veteranos shinobi que habían vivido l
 </br>
 
 "Llegan tarde".</br>
-Los ninjas de Kumogakure refunfuñaron, esperando bajo la llovizna para recibir a los ninjas de Kirigakure en el puerto del País de la Luz. La hora de llegada prevista había pasado hace tiempo, y no había llegado ningún mensaje que dijera que el barco llegaría tarde.</br>
+Los ninjas de Kumogakure refunfuñaron, esperando bajo la llovizna para recibir a los ninjas de Kirigakure en el puerto del País del Rayo. La hora de llegada prevista había pasado hace tiempo, y no había llegado ningún mensaje que dijera que el barco llegaría tarde.</br>
 "El Lord Raikage va a perder la cabeza si se retrasan demasiado".</br>
 Su directo y corto Raikage. Si lo hacían esperar demasiado, estallaría en cólera; bien podría hacer caer el rayo de su nombre sobre ellos.</br>
 "Tal vez el clima no esté funcionando con ellos. Al fin y al cabo, no hay ningún lugar en el océano donde resguardarse de la lluvia".</br>
@@ -119,8 +119,8 @@ Por eso no podía pasar por alto un asunto en particular.</br>
 <em>Otsutsuki Kaguya.</em></br>
 La mujer que había tomado en su boca el fruto del Árbol Divino —que se decía prohibido— ganó chakra, y trajo la calma a un mundo turbulento. Pero había sido consumida por el inmenso poder, y tras un tiempo en el que se desbocó, sus propios hijos, Hamura y Hagoromo, la habían sellado.</br>
 La mismísima Kaguya había vuelto a este mundo, y Sasuke, junto con sus compañeros del Equipo 7 y Uchiha Obito, la había sellado una vez más. Una vez que la amenaza que había sacudido al mundo había pasado, la gente se regocijó, pero algo en ello molestó a Sasuke.</br>
-Gracias a las maniobras secretas de Zetsu Negro para traerla de vuelta, Kaguya vinculó a las personas sobre las que lanzó el Tsukiyomi Infinito a las raíces del Árbol Divino, transformándolas durante muchos años en sus soldados personales. El resultado final fue el ejército de Zetsu Blanco.</br>
-Anteriormente conocida como la Diosa Conejo, Kaguya cambió de alguna manera después de haber liberado al mundo del conflicto, por lo que la gente conectada al Árbol Divino también vino después de la paz que ella trajo. ¿Por qué, en un mundo en el que se suponía que la lucha había terminado, había necesidad de utilizar el Tsukiyomi Infinito en la gente y convertirla en soldados? Para jugar cruelmente con los que tenían poder, para controlar a los seres humanos con el miedo; se le ocurrieron varias razones, pero Sasuke no veía una respuesta clara.</br>
+Gracias a las maniobras secretas de Zetsu Negro para traerla de vuelta, Kaguya vinculó a las personas sobre las que lanzó el Tsukuyomi Infinito a las raíces del Árbol Divino, transformándolas durante muchos años en sus soldados personales. El resultado final fue el ejército de Zetsu Blanco.</br>
+Anteriormente conocida como la Diosa Conejo, Kaguya cambió de alguna manera después de haber liberado al mundo del conflicto, por lo que la gente conectada al Árbol Divino también vino después de la paz que ella trajo. ¿Por qué, en un mundo en el que se suponía que la lucha había terminado, había necesidad de utilizar el Tsukuyomi Infinito en la gente y convertirla en soldados? Para jugar cruelmente con los que tenían poder, para controlar a los seres humanos con el miedo; se le ocurrieron varias razones, pero Sasuke no veía una respuesta clara.</br>
 Perseguía los rastros que había dejado Kaguya para despejar sus dudas, pero su oponente era el progenitor del chakra. Puede que Sasuke tuviera el Rinnegan, pero seguir su rastro no era nada fácil.</br>
 "¿Mm?" Sintiendo un aura, miró hacia el suroeste.
 Cuando entrecerró los ojos, pudo ver algo que volaba en su dirección. A primera vista, era un pequeño pájaro que agitaba sus alas, pero en ese pájaro no circulaba sangre, sino tinta y texto que cobraba vida gracias al chakra.</br>
