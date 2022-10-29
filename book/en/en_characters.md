@@ -92,7 +92,7 @@
 - Jutsu [Shadow Imitation](https://naruto.fandom.com/wiki/Shadow_Imitation_Technique) (Kagemane no Jutsu)
 - Jutsu [Mind Body Switch](https://naruto.fandom.com/wiki/Mind_Body_Switch_Technique) (Shintenshin no Jutsu)
 
-# Others terms
+# Other terms
 
 - [Shinobi](https://naruto.fandom.com/wiki/Shinobi) (Ninja o Kunoichi)
 - [Fourth Great Ninja War](https://naruto.fandom.com/wiki/Fourth_Shinobi_World_War?so=search)
