@@ -4,7 +4,7 @@
 
 ## 🔖 Tabla de contenidos
 
-- [x] [Personajes](./es_characters.md)
+- [x] [NarutoPedia](./es_characters.md)
 - [x] [Prologo](./es_prologue.md)
 - [x] [Capitulo 1: Nubes oscuras que aparecen en un mundo de cambios](./es_chapter_1.md)
 - [ ] Capitulo 2: La sombra del pasado revivida por un rayo
