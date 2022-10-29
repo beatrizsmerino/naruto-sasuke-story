@@ -2,6 +2,8 @@
 
 <br>
 
+![NarutoPedia](../../README/images/naruto-pedia.webp)
+
 # Characters
 
 - [Itachi Uchiha](https://naruto.fandom.com/wiki/Itachi_Uchiha)
