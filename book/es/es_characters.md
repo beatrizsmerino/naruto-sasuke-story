@@ -92,7 +92,7 @@
 - Jutsu [Imitación de Sombra](https://naruto.fandom.com/es/wiki/Jutsu:_Imitaci%C3%B3n_de_Sombra) (Kagemane no Jutsu)
 - Jutsu [Intercambio de Cuerpo y Mente](https://naruto.fandom.com/es/wiki/Jutsu:_Cambio_de_Cuerpo_y_Mente) (Shintenshin no Jutsu)
 
-# Otros terminos
+# Otros términos
 
 - [Shinobi](https://naruto.fandom.com/es/wiki/Shinobi) (Ninja o Kunoichi)
 - [Cuarta Gran Guerra Ninja](https://naruto.fandom.com/es/wiki/Cuarta_Guerra_Mundial_Shinobi)
