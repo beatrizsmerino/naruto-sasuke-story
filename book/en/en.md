@@ -5,6 +5,7 @@
 ## 🔖 Table of contents
 
 - [x] [NarutoPedia](./en_naruto-pedia.md)
+- [x] [Anime](./en_anime.md)
 - [x] [Prologue](./en_prologue.md)
 - [x] [Chapter 1: Dark clouds appearing in a world of change](./en_chapter_1.md)
 - [ ] Chapter 2: Shadow of the past revived by lightning
